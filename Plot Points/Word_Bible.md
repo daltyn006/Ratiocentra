@@ -3,7 +3,8 @@ Storyline Plot Points:
 "not all humans are rational, and some humans have better rationalization than others." 
 
 "Highscooler" 25y.o
-fully "Ratiocentrist" society
+
+Lives within a fully "Ratiocentrist" society
 "coma testing" - for "rationalist thought" science-fiction 
 practices lucid dreaming to pass the coma test
 futuristic utopian society
