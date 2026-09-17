@@ -8,9 +8,9 @@
 
 Grant Pewdershmitt lives in a perfect utopia with his mother and father. The few people left are able to live out their lives with little stress, conflict, or adversity due to a set of customs and traditions put in place centuries ago. Billions have died and will continue to die for the cause, but it is alright because they have no souls. That is the only way to redeem society in the eyes of The Elders. while younger generations have time to reach their root capacities, it is up to the self to decide whether survival is at hand.
 
-With memories of reality and fiction driving him to anguish in what would be perfection, it soon becomes impossible for him to conform on the day of his becoming. How many suffer before suffering becomes incarnate, to embellish the walls with the shortcomings and failures of what has become of truth and justice. Love, reason, and the incarnate are not meant to co-exist. The greater good sometimes requires an evil.
+With memories of reality and fiction driving him to anguish in what would be perfection, it soon becomes impossible for him to conform on the day of his becoming. How many shall suffer before pain becomes God, to embellish the walls with the shortcomings and failures of what has become of truth and justice. Love, reason, and the incarnate are not meant to co-exist. The greater good sometimes requires an evil.
 
-Now the world reacts to the actions of the meek. Humanity has figured out what must be sacrificed to develop. Now that it has, why should it suffer?
+Now the world reacts to the actions of the meek. Humanity has figured out what must be sacrificed to develop. Now that it has, why should it cause its own demise?
 
 ## 📑 Read Online
 
