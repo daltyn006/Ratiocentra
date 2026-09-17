@@ -1,6 +1,6 @@
 Creative Commons Attribution-NonCommercial-ShareAlike 4.0 International Public License
 
-Copyright (c) 2026, Daltyn Landas
+Copyright (c) 2026 Daltyn Landas
 
 ========================================================================
 1. DIGITAL SOURCE TEXT LICENSE (CC BY-NC-SA 4.0)
@@ -28,7 +28,7 @@ https://creativecommons.org/licenses/by-nc-sa/4.0/legalcode
 ========================================================================
 
 All rights not expressly granted under the CC BY-NC-SA 4.0 license are 
-strictly reserved by the copyright owner, [Your Name / Pen Name].
+strictly reserved by the copyright owner, Daltyn Landas.
 
 This reservation of rights includes, without limitation:
   * Physical Publishing: Exclusive rights to print, manufacture, publish, distribute, or sell physical formats (paperback, hardcover, limited editions, print-on-demand).
