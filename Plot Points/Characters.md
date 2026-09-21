@@ -15,14 +15,19 @@ Grant Pewdershmitt:
     main character- plot revolves to his actions but does not focus fully on him
 
     Background:
-            Born of Mr. Pewdershmitt ("Father") and Mrs. Pewderhsmitt, he went through life carelessly and aimlessly; ahead of his grades and barely needing to pay attention in class until the 13th grade. After which he focused heavily on philosophy, psychology, and politics. He has been "arrested" twice and put in jail for seemingly normal "free speech" things which is entirely reasonable.
+            Born of Mr. Pewdershmitt ("Father") and Mrs. Pewderhsmitt, he went through life carelessly and aimlessly; 
+ahead of his grades and barely needing to pay attention in class until the 13th grade. After which he focused heavily
+ on philosophy, psychology, and politics. He has been "arrested" twice and put in jail for seemingly normal "free speech" 
+things which is entirely reasonable. Although he was centered as a young man, 
 
   - Regrets nothing.
   - Secretly has multiple crushes that is not "normal" for the time period.
   - Motivations: love interest, ego, and stubbornness.
   - Voice and Behavior- dynamic masculine mid-tonal.
-  - mannerism- anxious, fidgety, "happy"
-  - stress response - rubs forehead, blinks more
+  - mannerisms- anxious, fidgety, "overly happy insanity", wild mood shifts
+  - stress response - fidgets heavily, stops blinking, 
+  - paranoid and hallucinates what he perceives as true in his mind
+
 
 Relationships: 
       TBD after other characters built
