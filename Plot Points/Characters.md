@@ -43,44 +43,44 @@
 #------------------------------------------------------------------------------------------------------------------------------
 
 ## Grant Pewdershmitt
-- **Physical Appearance:** 23-25 years old, Male
-- **Has Soul:** no
-- **Nationality/Culture:** Caucasian, brown half-sweep hairstyle, brown eyes, square face, 6' skinny body, unkempt
+- **Age and Gender:** 23 -> 25yo Male
+- **Physical Appearance:**  brown half-sweep hairstyle, brown eyes, square face, 6' skinny body, unkempt
+- **Nationality/Culture:** Caucasian,
 - **Occupation/Profession:** Overall Failure, political protestor. given the oprotunity to 
 
-- **Traits:** Narcissistic, pessimistic, satirical, ironical, internally angry, externally a madman
+- **Traits:** slowly dissolves into Narcissistic, pessimistic, satirical, ironical, internally angry, externally a madman
 - **Motivations:** Love interest, ego, and stubbornness
 - **Conflict:** Rationality, Status Quo
 
-- **Family:** Born of Mr. Pewdershmitt ("Father") and Mrs. Pewdershmitt
-- **Education:** Ahead of his grades until the 13th grade; focused heavily on philosophy, psychology, and politics
+- **Family:** Born of Mr. Pewdershmitt ("Father") and Mrs. Pewdershmitt ("Mom")
+- **Education:** Ahead of his grades until the 13th grade; focused heavily on philosophy, psychology, and politics, currently in 17th grade
 - **Life Events:** Carefree and aimless until Manda Even brought him to question societal issues
 
 - **Role in Story:** Protagonist - plot revolves around his actions but does not focus fully on him
 - **Goals and Arc:** No goals and then becomes dead set on destroying the status quo
 - **Key Relationships:** Positive and Negative, story revolves around him and branches from there
 
-- **Speech Patterns:** Dynamic masculine mid-tonal
+- **Speech Patterns:** Dynamic masculine mid-tonal, slow and slightly slurred.
 - **Idioms and Catchphrases:** "I watch and am watched" 
 - **Body Language:** Anxious, fidgety, "overly happy insanity", wild mood shifts
 
 - **Environment:** dynamic, comforting to adversarial -> in Locations.md
 - **Social Status:** unpopular anarchist that people tend to avoid 
 
-- **Imagery:** [empty]
-- **Inspiration:** "some people want to watch the world burn" 
+- **Imagery:** scraggly ragged man decently lanky, he is athletic and healthy 
+- **Inspiration:** "some people want to watch the world burn", I want to control the flames and make it die.
 - **Future Development:** chaotic character that only comes to realize what his errors are after he goes through his testing
-```
 
 
-## Manda[line] Eeven
+## Manda Eeven
+    - full name Mandaline
     22 -> 24 years old, Female
     Externally angry, internally depressed, straight to the point, sharp and straight as a knife
 
    Background: 
          Born of two parents unimportant to the story, Manda wants what's best for the world but is unwilling to think things through past what is presented to her. The 
 
-  
+  what  
   
 
 
