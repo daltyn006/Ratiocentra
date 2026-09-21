@@ -52,6 +52,8 @@
 - **Traits:** slowly dissolves into Narcissistic, pessimistic, satirical, ironical, internally angry, externally a madman
 - **Motivations:** Love interest, ego, and stubbornness
 - **Conflict:** Rationality, Status Quo
+- **Relationships:** has friends and enemies, knows everyone in the story
+- **Quirks:** perceives himself as always being watched and never alone 
 
 - **Family:** Born of Mr. Pewdershmitt ("Father") and Mrs. Pewdershmitt ("Mom")
 - **Education:** Ahead of his grades until the 13th grade; focused heavily on philosophy, psychology, and politics, currently in 17th grade
@@ -61,6 +63,7 @@
 - **Role in Story:** Protagonist - plot revolves around his actions but does not focus fully on him
 - **Goals and Arc:** From no goals and then becomes dead set on destroying the status quo
 - **Key Relationships:** Positive and Negative, story revolves around him and branches from there
+- **Important Decisions:** So many
 
 - **Speech Patterns:** Dynamic masculine mid-tonal, slow and slightly slurred.
 - **Idioms and Catchphrases:** "I watch and am watched" 
@@ -79,7 +82,7 @@
 
 - **Name:** Mandaline Eeven
 - **Soul:** No
-- **Physical Appearance:** 22-24 years old, Female, [empty]
+- **Physical Appearance:** 24-24 years old, Female, [empty]
 - **Nationality/Culture:** Caucasian-Asian 
 - **Occupation/Profession:** [empty]
 
@@ -87,8 +90,8 @@
 - **Traits:** Externally angry, internally depressed, sharp, direct
 - **Motivations:** Desire to do what's best for the world
 - **Conflict:** Impulsiveness vs. careful consideration
-- **Relationships:** [empty]
-- **Quirks:** [empty]
+- **Relationships:** Love interest to Grant and others
+- **Quirks:**
 
 **Background**
 - **Family:** Orphan to parents killed after tests
@@ -97,7 +100,7 @@
 - **Skills:** [empty]
 
 **Plot Points**
-- **Role in Story:** Antagonist/Friend of Grant Pewdershmitt
+- **Role in Story:** False positive influence over Grant.
 - **Goals and Arc:** Initially opposes Grant's plans but eventually comes around to his perspective
 - **Key Relationships:** Grant Pewdershmitt
 - **Important Decisions:** [empty]
