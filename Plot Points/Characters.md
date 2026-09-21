@@ -168,9 +168,9 @@
 
 ## Beorme Vodkin
   
--**Age and Gender:** 21 -> 23 yo Male
+-**Age and Gender:** 16 -> 19 yo Male
 - **Soul:** No
-- **Physical Appearance:** 6'3", 230lbs, black hair, green eyes, kept and clean, average looking, ugly forehead.
+- **Physical Appearance:** 6'3", 150lbs, black hair, green eyes, kept and clean, average looking face, ugly forehead.
 - **Nationality/Culture:** American
 - **Occupation/Profession:** Jobless drug addict
 
@@ -188,24 +188,24 @@
 - **Skills:** Both learned and innate skills that the character possesses.
 
 **Plot Points**
-- **Role in Story:** How the character fits into the overall story.
-- **Goals and Arc:** What the character wants and how they change throughout the story.
-- **Key Relationships:** Hates Anderson for stealing his food constantly.
-- **Important Decisions:** Crucial choices that the character makes.
+- **Role in Story:** Knows many different connections in the underground, connection with the narrator to get different items and places.
+- **Goals and Arc:** Character just wants a real connection, but he perceives everything as fiction and thinks himself God when he's drugged.
+- **Key Relationships:** Hates Anderson for stealing his beer constantly, hates Manda for taking his harder stuff.
+- **Important Decisions:** Has multiple important things that are extremely simple to do but falls through at the end when his drug addiction gets worst.
 
 **Dialogue Patterns**
-- **Speech Patterns:** How the character speaks, including accent, slang, and dialect.
-- **Idioms and Catchphrases:** Unique phrases that the character often uses.
-- **Body Language:** Posture, gestures, and facial expressions that convey their mood and intentions.
+- **Speech Patterns:** Fast and arrant when on uppers, slow and dreary on downers, more and more diverged as the story goes on.
+- **Idioms and Catchphrases:** "I-I-I-I really like this right now f-f-f-FUCK yeah." || "Why are we here... Get me the fuck back to my bed."
+- **Body Language:** hunched over, scratches wrists/arms, shivers, shakes and fiends
 
 **World Interaction**
-- **Environment:** The character's typical surroundings.
-- **Social Status:** Economic status, social status, and how it affects their life.
-- **Politics/Religion:** The character's views on politics and religion, if relevant.
+- **Environment:** Night life
+- **Social Status:** Socially poor in the formal class and highly regarded in the night life culture
+- **Politics/Religion:** Hates the system for killing a lot of the people around him. 
 
 **Notes and Observations**
-- **Imagery:** Visual representations of the character, sketches, or photos.
-- **Inspiration:** Sources of inspiration for the character.
+- **Imagery:** 
+- **Inspiration:** Jesse Pinkman
 - **Future Development:** Ideas for character growth or potential plot points involving the character.
 
 
