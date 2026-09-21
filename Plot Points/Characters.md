@@ -112,9 +112,9 @@
 - **Body Language:** Flirtatious, sly, manipulative || seductive
 
 **World Interaction**
-- **Environment:** [empty]
-- **Social Status:** [empty]
-- **Politics/Religion:** [empty]
+- **Environment:** grown in an orphanage, looks for the best - never finds it. 
+- **Social Status:** lowly whore.
+- **Politics/Religion:** loves the world, hates humanity.
 
 **Notes and Observations**
 - **Imagery:** [empty]
