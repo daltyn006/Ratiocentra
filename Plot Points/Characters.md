@@ -117,8 +117,8 @@
 - **Politics/Religion:** loves the world, hates humanity
 
 **Notes and Observations**
-- **Imagery:** [empty]
-- **Inspiration:** [empty]
+- **Imagery:** ragged, unclean, but beautiful. 
+- **Inspiration:** whore
 - **Future Development:* She dies in her test from helping a soulless being to stay alive. 
 
 
