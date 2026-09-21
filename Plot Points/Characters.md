@@ -64,7 +64,7 @@
 - **Idioms and Catchphrases:** "I watch and am watched" 
 - **Body Language:** Anxious, fidgety, "overly happy insanity", wild mood shifts
 
-- **Environment:** dynamic, comforting to adversarial -> in Places.md
+- **Environment:** dynamic, comforting to adversarial -> in Locations.md
 - **Social Status:** unpopular anarchist that people tend to avoid 
 
 - **Imagery:** [empty]
