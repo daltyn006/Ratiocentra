@@ -141,8 +141,8 @@ Characters:
     "friends":
       dander 
       christoph //dies after the coma 
-      beorme 
-      anderson //dies after the coma 
+      beorme //dies after the coma 
+      anderson 
       
 
   Side Characters:
