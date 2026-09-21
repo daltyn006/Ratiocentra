@@ -152,37 +152,37 @@
 **Dialogue Patterns**
 - **Speech Patterns:** boasting, booming voice, hearty and tonal chest.
 - **Idioms and Catchphrases:** "he's standing behind me isn't he"
-- **Body Language:** Posture, gestures, and facial expressions that convey their mood and intentions.
+- **Body Language:** loose but upright posture, flowing motions, when anxious he hits his hands together 
 
 **World Interaction**
-- **Environment:** The character's typical surroundings.
-- **Social Status:** Economic status, social status, and how it affects their life.
-- **Politics/Religion:** The character's views on politics and religion, if relevant.
+- **Environment:** Noted in Locations.md
+- **Social Status:** Highly regarded socially and economically. 
+- **Politics/Religion:** Humble, follows the rules. 
 
 **Notes and Observations**
-- **Imagery:** Visual representations of the character, sketches, or photos.
-- **Inspiration:** Sources of inspiration for the character.
-- **Future Development:** Ideas for character growth or potential plot points involving the character.
+- **Imagery:** Decently sized belly, toned limbs, double chin, fat and jolly.
+- **Inspiration:** Fat men.
+- **Future Development:** Grows to question the reality but goes about changing it legally, slowly, and thoughtfully, instead of recklessly.
 
 #-------------------------------------------------------------------------------------------------------------------------------
 
 ## Beorme Vodkin
   
--**Age and Gender:** 23 -> 25 yo Male
-- **Soul:** Yes
-- **Physical Appearance:** 5'5", 230lbs, red hair, red eyes, kept and clean, chubby happy demeanor.
-- **Nationality/Culture:** German Caucasian
-- **Occupation/Profession:** Smithing Trainee, enjoys his purpose even though people don't really need his tools
+-**Age and Gender:** 21 -> 23 yo Male
+- **Soul:** No
+- **Physical Appearance:** 6'3", 230lbs, black hair, green eyes, kept and clean, average looking, ugly forehead.
+- **Nationality/Culture:** American
+- **Occupation/Profession:** Jobless drug addict
 
 **Personality**
-- **Traits:** Positive, negative, and neutral traits.
-- **Motivations:** What drives the character? What are their goals and desires?
-- **Conflict:** Internal and external conflicts that the character faces.
-- **Relationships:** Family, friends, romantic interests, and enemies.
-- **Quirks:** Habits, likes, dislikes, and superstitions
+- **Traits:** Junkie that does everything hard he can at any time regardless of outward appearance
+- **Motivations:** Sees everything as fake, doesn't care about anything and wants to 
+- **Conflict:** Refuses to think about anything sober, drugs and altering mind
+- **Relationships:** 
+- **Quirks:** Meth, Speed, hard depressants, hates being sober, 
 
 **Background**
-- **Family:** Family history, parents, siblings, and any other relatives.
+- **Family:** Two loving parents that kicked him out to try to help him only making things worse, 4 different siblings which came before him
 - **Education:** Schools attended, education level, and significant teachers.
 - **Life Events:** Major life events that have shaped the character.
 - **Skills:** Both learned and innate skills that the character possesses.
