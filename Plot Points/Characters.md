@@ -118,7 +118,7 @@
 
 **Notes and Observations**
 - **Imagery:** ragged, unclean, but beautiful. 
-- **Inspiration:** overly caring woman that tries to help too much
+- **Inspiration:** overly caring woman that tries to help too much and is hurt every time she fails
 - **Future Development:* She dies in her test from helping a soulless being to stay alive. 
 
 
