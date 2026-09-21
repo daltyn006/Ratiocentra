@@ -45,8 +45,8 @@
 ## Grant Pewdershmitt
 - **Age and Gender:** 23 -> 25yo Male
 - **Soul:** No
-- **Physical Appearance:**  brown half-sweep hairstyle, brown eyes, square face, 6' skinny body, unkempt
-- **Nationality/Culture:** Caucasian
+- **Physical Appearance:** 6', ~200lbs,  short brown half-sweep hairstyle, brown eyes, square face, skinny body, unkempt
+- **Nationality/Culture:** Eastern-Caucasian
 - **Occupation/Profession:** Overall Failure, political protestor. given the oprotunity to 
 
 - **Traits:** slowly dissolves into Narcissistic, pessimistic, satirical, ironical, internally angry, externally a madman
@@ -83,7 +83,7 @@
 
 - **Name:** Mandaline Eeven
 - **Soul:** No
-- **Physical Appearance:** 4'11", 24-24 years old, Female, small and slightly chubby in a cute way, somewhat healthy alcoholic
+- **Physical Appearance:** 4'11", ~150lbs, 24-24 years old, Female, small and slightly chubby in a cute way, somewhat healthy alcoholic
 - **Nationality/Culture:** Caucasian-Asian 
 - **Occupation/Profession:** artist 
 
@@ -124,11 +124,56 @@
 #-------------------------------------------------------------------------------------------------------------------------------
 
 ## Anderson Hearth
-
+  
+-**Age and Gender:** 23 -> 25 yo Male
 - **Soul:** Yes
-- **Physical Appearance:** Height, weight, hair color, eye color, age, and any other relevant physical characteristics.
-- **Nationality/Culture:** The character's country of origin, religion, and cultural background.
-- **Occupation/Profession:** Not needed: everyone may have a role but it is purely for show
+- **Physical Appearance:** 5'5", 230lbs, red hair, red eyes, kept and clean, chubby happy demeanor.
+- **Nationality/Culture:** German Caucasian
+- **Occupation/Profession:** Smithing Trainee, enjoys his purpose even though people don't really need his tools
+
+**Personality**
+- **Traits:** Positive, negative, and neutral traits.
+- **Motivations:** What drives the character? What are their goals and desires?
+- **Conflict:** Internal and external conflicts that the character faces.
+- **Relationships:** Family, friends, romantic interests, and enemies.
+- **Quirks:** Habits, likes, dislikes, and superstitions
+
+**Background**
+- **Family:** Family history, parents, siblings, and any other relatives.
+- **Education:** Schools attended, education level, and significant teachers.
+- **Life Events:** Major life events that have shaped the character.
+- **Skills:** Both learned and innate skills that the character possesses.
+
+**Plot Points**
+- **Role in Story:** How the character fits into the overall story.
+- **Goals and Arc:** What the character wants and how they change throughout the story.
+- **Key Relationships:** Who the character interacts with and their significance in the story.
+- **Important Decisions:** Crucial choices that the character makes.
+
+**Dialogue Patterns**
+- **Speech Patterns:** How the character speaks, including accent, slang, and dialect.
+- **Idioms and Catchphrases:** Unique phrases that the character often uses.
+- **Body Language:** Posture, gestures, and facial expressions that convey their mood and intentions.
+
+**World Interaction**
+- **Environment:** The character's typical surroundings.
+- **Social Status:** Economic status, social status, and how it affects their life.
+- **Politics/Religion:** The character's views on politics and religion, if relevant.
+
+**Notes and Observations**
+- **Imagery:** Visual representations of the character, sketches, or photos.
+- **Inspiration:** Sources of inspiration for the character.
+- **Future Development:** Ideas for character growth or potential plot points involving the character.
+
+#-------------------------------------------------------------------------------------------------------------------------------
+
+## Beorme vodkin
+  
+-**Age and Gender:** 23 -> 25 yo Male
+- **Soul:** Yes
+- **Physical Appearance:** 5'5", 230lbs, red hair, red eyes, kept and clean, chubby happy demeanor.
+- **Nationality/Culture:** German Caucasian
+- **Occupation/Profession:** Smithing Trainee, enjoys his purpose even though people don't really need his tools
 
 **Personality**
 - **Traits:** Positive, negative, and neutral traits.
@@ -168,11 +213,93 @@
 
 
 
+#-------------------------------------------------------------------------------------------------------------------------------
 
+## Anderson Hearth
+  
+-**Age and Gender:** 23 -> 25 yo Male
+- **Soul:** Yes
+- **Physical Appearance:** 5'5", 230lbs, red hair, red eyes, kept and clean, chubby happy demeanor.
+- **Nationality/Culture:** German Caucasian
+- **Occupation/Profession:** Smithing Trainee, enjoys his purpose even though people don't really need his tools
 
+**Personality**
+- **Traits:** Positive, negative, and neutral traits.
+- **Motivations:** What drives the character? What are their goals and desires?
+- **Conflict:** Internal and external conflicts that the character faces.
+- **Relationships:** Family, friends, romantic interests, and enemies.
+- **Quirks:** Habits, likes, dislikes, and superstitions
 
+**Background**
+- **Family:** Family history, parents, siblings, and any other relatives.
+- **Education:** Schools attended, education level, and significant teachers.
+- **Life Events:** Major life events that have shaped the character.
+- **Skills:** Both learned and innate skills that the character possesses.
 
+**Plot Points**
+- **Role in Story:** How the character fits into the overall story.
+- **Goals and Arc:** What the character wants and how they change throughout the story.
+- **Key Relationships:** Who the character interacts with and their significance in the story.
+- **Important Decisions:** Crucial choices that the character makes.
 
+**Dialogue Patterns**
+- **Speech Patterns:** How the character speaks, including accent, slang, and dialect.
+- **Idioms and Catchphrases:** Unique phrases that the character often uses.
+- **Body Language:** Posture, gestures, and facial expressions that convey their mood and intentions.
+
+**World Interaction**
+- **Environment:** The character's typical surroundings.
+- **Social Status:** Economic status, social status, and how it affects their life.
+- **Politics/Religion:** The character's views on politics and religion, if relevant.
+
+**Notes and Observations**
+- **Imagery:** Visual representations of the character, sketches, or photos.
+- **Inspiration:** Sources of inspiration for the character.
+- **Future Development:** Ideas for character growth or potential plot points involving the character.
+
+#-------------------------------------------------------------------------------------------------------------------------------
+
+## Anderson Hearth
+  
+-**Age and Gender:** 23 -> 25 yo Male
+- **Soul:** Yes
+- **Physical Appearance:** 5'5", 230lbs, red hair, red eyes, kept and clean, chubby happy demeanor.
+- **Nationality/Culture:** German Caucasian
+- **Occupation/Profession:** Smithing Trainee, enjoys his purpose even though people don't really need his tools
+
+**Personality**
+- **Traits:** Positive, negative, and neutral traits.
+- **Motivations:** What drives the character? What are their goals and desires?
+- **Conflict:** Internal and external conflicts that the character faces.
+- **Relationships:** Family, friends, romantic interests, and enemies.
+- **Quirks:** Habits, likes, dislikes, and superstitions
+
+**Background**
+- **Family:** Family history, parents, siblings, and any other relatives.
+- **Education:** Schools attended, education level, and significant teachers.
+- **Life Events:** Major life events that have shaped the character.
+- **Skills:** Both learned and innate skills that the character possesses.
+
+**Plot Points**
+- **Role in Story:** How the character fits into the overall story.
+- **Goals and Arc:** What the character wants and how they change throughout the story.
+- **Key Relationships:** Who the character interacts with and their significance in the story.
+- **Important Decisions:** Crucial choices that the character makes.
+
+**Dialogue Patterns**
+- **Speech Patterns:** How the character speaks, including accent, slang, and dialect.
+- **Idioms and Catchphrases:** Unique phrases that the character often uses.
+- **Body Language:** Posture, gestures, and facial expressions that convey their mood and intentions.
+
+**World Interaction**
+- **Environment:** The character's typical surroundings.
+- **Social Status:** Economic status, social status, and how it affects their life.
+- **Politics/Religion:** The character's views on politics and religion, if relevant.
+
+**Notes and Observations**
+- **Imagery:** Visual representations of the character, sketches, or photos.
+- **Inspiration:** Sources of inspiration for the character.
+- **Future Development:** Ideas for character growth or potential plot points involving the character.
 
 
 
