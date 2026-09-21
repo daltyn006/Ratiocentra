@@ -191,7 +191,7 @@
 **Plot Points**
 - **Role in Story:** How the character fits into the overall story.
 - **Goals and Arc:** What the character wants and how they change throughout the story.
-- **Key Relationships:** Who the character interacts with and their significance in the story.
+- **Key Relationships:** Hates Anderson for stealing his food constantly.
 - **Important Decisions:** Crucial choices that the character makes.
 
 **Dialogue Patterns**
