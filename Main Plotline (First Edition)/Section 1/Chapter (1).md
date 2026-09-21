@@ -1,3 +1,38 @@
       The world's changed. Then again, it was inevitable. The streets were paved of the ash of the dead, which wrapped the nation with deep irreparable roots. Those who lived rushed over them proudly on their ways to the jobs they had no need for. The world is at one with the works of humanity and animal alike, organic and inorganic manipulated to benefit the whole. Grant was on his way to tutor under his father as a composer, of bringing him little joy. He would have much rather been away, doing nothing of importance, and still he respected his father enough to follow him to his office. The orange sun gloomed over the asphalt that would have spread greatly over the horizon if a small town had not been brutally slapped on the earth where the two rapidly approached. Their vehicle slowed automatically to merge and swim alongside the other sparce groups being moved to their destinations. The mirrors and windshield of the vehicle were completely complementary, no control was given to the users. If Grant had decided to look out towards the familiar buildings he gazed thoughtlessly upon for 23 years he would have instead seen a racoon and his family playing together through a window. Grant was more interested in the device which he softly held, hunched over, partially in his hand, mostly on his thigh. Intently he gazed at a dimly lit screen showing him images that scattered in his mind. He had set himself in an image of grandeur and glory, hundreds of people stared on at him as he simply danced, moves increasingly blended and blurred together like a heat mirage in the desert. Although the technology was not capable of audio, in his mind the applause and cheers almost brought him to be happy. The fluid motions now became more focused and flowing as a second member slowly formed on stage. Abruptly his focus was demolished with the unconscious leg bouncing which threw the screen off his leg and out of his grip to the floor, stopping abruptly like a rock and causing a loud thud. This  would have drawn him attention if his father was not entranced in his own mind as well. 
 
     The vehicle gradually came to a halt and released its prisoners to where they had set the location. The two stepped barren out the right side of the vehicle to the smooth limestone of the sidewalk. The soft gloss finish pale chalk white of the street provided a cool surface on which bare feet could stride handily without harm. As the sun rose slowly crept to watch the town, chalk white turned neon from the glow and illuminated any shadows or scary portions which could have hidden some monster. "Why does it need to always be so bright", Grant unthinkingly proclaimed annoyed that the glowing roads were no longer a safe place to set his hungover eyes. He already knew the answer, it was engrained in his mind from his current history course. Humanity moved to where they were stable. "You know the answer, have you been studying?", Mr. Pewdershmitt replied slightly concerned, "You know how important it is that you are prepared for your testing". "I am aware, I still don't see what this has anything to do with my rationality". Mr. Pewdershmitt did not see a reason to respond to that, it was clear and did not dignify an answer. As the two passed along the common architecture bold and blatant protruding from the otherwise bland gothic homes and businesses. Ahead stood a lion with his cubs staring at an extended verse Grant had read many times before. The two sauntered by slowly, as their pace slowed to enter their studio. The door was unlocked, as was every other door, and yet it was increasingly rare for anyone to mosey on in. 
+    
+    As per usual, the studio was empty. Only the instruments and computers bringing all the possibilities of the mind, body, and soul to life remained. Mr. Pedwdershmitt was never a gatekeeper, and often held sessions with all beings for inspiration and assistance with his prowess. Many transient people traveled through the small town of 
+Beskyddaren but few rarely stayed past the initial lull of the artistry. Nobody required labor anymore, and artistry was ever taken under critique as too difficult or uninteresting to create instead of enjoy. Especially since technology made it so easy to create, why resort to the older ways? These questions resided heavily in Grant, growing into an cacophony of sounds that quietly dissolved as he entered the control room after his father. "This is where the majority of my music is created," he started in a soft, warm, and eerily comfortable tone. Gesturing a wave to a small computer barely the size of a laptop the mid-sized monitor which spread across the wall flashed alive and unlocked to show where his music was made. Grant was not impressed, especially since the flash greatly blinded him from the sudden contrast between the moodily lit room and the bright white of the screen. As his eyes returned back to him, he could see text sprawling across the screen describing what sounded like a regular piece. "I normally start and end with this computer. Although it is imperative for the knowledge of instruments, adoptive testing, and theory to perfect the source, this is the source". With a grand, measured movement, Mr. Pewdershmitt turned to face the monitor and motioned huge orchestrating gestures that cued the computer to begin paying attention. Huge lines of thought flowed from him into the computer-- the refined gestures of ages of practice reflecting almost no difference or alterations between his desired output and the computer's. Once the song was complete he turned to his son, and gestured to go ahead.
+
+    "Start out by showing what you learned with the guitar. Remember, it is not the movements that need to be refined, but your mind. This is the difference between regular composers and the truly positioned ones. I may be able to create ballads of immense depth in minutes while it would take others decades of independent work. I expect that you remember your lessons at least." The air suddenly became thick with pressure. Although his father was always pleasurable to be around, the sudden spotlight set upon him was blinding, and the deep brown eyes distorted by thick spectacles transfixed him in his position. "Go ahead now boy, get a move on." He inserted gesturing intensely at the large border Grant was expected to stand within. Grant often listened to music in his mind and memorized what was existing, but could rarely think of anything original or creative. The moments he stood before the behemoth screen changed seconds to hours as he rambled through his mind to find anything worthy to show his father. One song stood out to him, it was the song that played when she entered. Soon enough, and before he even motioned, the computers  thoughts refined and 
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
