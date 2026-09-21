@@ -107,7 +107,7 @@
 - **Important Decisions:** Being with Grant
 
 **Dialogue Patterns**
-- **Speech Patterns:** Sharp, direct, [empty]
+- **Speech Patterns:** Sharp, direct, persecuting 
 - **Idioms and Catchphrases:** "things aren't always what they're meant to be" 
 - **Body Language:** Flirtatious, sly, manipulative || seductive
 
