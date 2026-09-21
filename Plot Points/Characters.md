@@ -108,7 +108,7 @@
 
 **Dialogue Patterns**
 - **Speech Patterns:** Sharp, direct, persecuting 
-- **Idioms and Catchphrases:** "why don't you think of what's good" 
+- **Idioms and Catchphrases:** "think of what's good" 
 - **Body Language:** Flirtatious, sly, manipulative || seductive
 
 **World Interaction**
