@@ -127,22 +127,21 @@
   
 -**Age and Gender:** 23 -> 25 yo Male
 - **Soul:** Yes
-- **Physical Appearance:** 5'5", 230lbs, red hair, red eyes, kept and clean, chubby happy demeanor.
+- **Physical Appearance:** 5'5", 230lbs, short red hair, red eyes, kept and clean, chubby happy demeanor.
 - **Nationality/Culture:** German Caucasian
 - **Occupation/Profession:** Smithing Trainee, enjoys his purpose even though people don't really need his tools
 
 **Personality**
-- **Traits:** Positive, negative, and neutral traits.
-- **Motivations:** What drives the character? What are their goals and desires?
-- **Conflict:** Internal and external conflicts that the character faces.
-- **Relationships:** Family, friends, romantic interests, and enemies.
-- **Quirks:** Habits, likes, dislikes, and superstitions
+- **Traits:** Soulful, happy, looks on the bright side of things, genuinely content, likes to make jokes.
+- **Motivations:** Simply driven to make others happy and benefit society.
+- **Conflict:** Has to go through social adversity for being larger and jollier.
+- **Relationships:** Mostly friends with Danader. Enjoyed time with Grant before his transition, after he still likes it but not as much.
 
 **Background**
-- **Family:** Family history, parents, siblings, and any other relatives.
-- **Education:** Schools attended, education level, and significant teachers.
+- **Family:** Mr. Mrs. Hearth, sister Lyra
+- **Education:** Took out of school after adequate basic knowledge and put under 
 - **Life Events:** Major life events that have shaped the character.
-- **Skills:** Both learned and innate skills that the character possesses.
+- **Skills:** innately strong arms, fat belly; knows his way around a hammer and can get out of situations well.
 
 **Plot Points**
 - **Role in Story:** How the character fits into the overall story.
