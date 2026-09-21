@@ -151,7 +151,7 @@
 
 **Dialogue Patterns**
 - **Speech Patterns:** boasting, booming voice, hearty and tonal chest.
-- **Idioms and Catchphrases:** Unique phrases that the character often uses.
+- **Idioms and Catchphrases:** "he's standing behind me isn't he"
 - **Body Language:** Posture, gestures, and facial expressions that convey their mood and intentions.
 
 **World Interaction**
