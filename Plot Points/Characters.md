@@ -66,6 +66,7 @@
 - **Important Decisions:** So many
 
 - **Speech Patterns:** Dynamic masculine mid-tonal, slow and slightly slurred.
+- **Dialogue Patterns:** refuses to repeat himself, tries many times to speak telepathically without speaking
 - **Idioms and Catchphrases:** "I watch and am watched" 
 - **Body Language:** Anxious, fidgety, "overly happy insanity", wild mood shifts
 
