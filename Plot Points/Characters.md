@@ -40,7 +40,7 @@
 - **Inspiration:** Sources of inspiration for the character.
 - **Future Development:** Ideas for character growth or potential plot points involving the character.
 
-#------------------------------------------------------------------------------------------------------------------------------
+-----------------------------------------------------------------------------------------------------------------------------
 
 ## Grant Pewdershmitt
 - **Age and Gender:** 23 -> 25yo Male
@@ -77,7 +77,7 @@
 - **Inspiration:** "some people want to watch the world burn", I want to control the flames and make it die.
 - **Future Development:** chaotic character that only comes to realize what his errors are after he goes through his testing
 
-#--------------------------------------------------------------------------------------------------------------------------------------------
+---
 
 ## Manda Eeven
 
@@ -121,7 +121,7 @@
 - **Inspiration:** overly caring woman that tries to help too much and is hurt every time she fails
 - **Future Development:* She dies in her test from helping a soulless being to stay alive. 
 
-#----------------------------------------------------------------------------------------------------------------------------------------------------------------------------
+---
 
 ## Lindesay Iverson
   
@@ -165,7 +165,7 @@
 - **Inspiration:** Sources of inspiration for the character.
 - **Future Development:** Ideas for character growth or potential plot points involving the character.
 
-#-------------------------------------------------------------------------------------------------------------------------------
+------------------------------------------------------------------------------------------------------------------------------
 
 ## Anderson Hearth
   
@@ -208,7 +208,7 @@
 - **Inspiration:** Fat men.
 - **Future Development:** Grows to question the reality but goes about changing it legally, slowly, and thoughtfully, instead of recklessly.
 
-#-------------------------------------------------------------------------------------------------------------------------------
+---
 
 ## Beorme Vodkin
   
@@ -255,7 +255,7 @@
 
 
 
-#-------------------------------------------------------------------------------------------------------------------------------
+---
 
 ## Cristoph Umber
 
@@ -299,7 +299,7 @@
 - **Inspiration:** Sources of inspiration for the character.
 - **Future Development:** Ideas for character growth or potential plot points involving the character.
 
-#-------------------------------------------------------------------------------------------------------------------------------
+---
 
 ## Daneder Theurn
   
@@ -343,11 +343,11 @@
 - **Inspiration:** Sources of inspiration for the character.
 - **Future Development:** Ideas for character growth or potential plot points involving the character.
 
-#----------------------------------------------------------------------------------------------------------------------------
+---
 
 ### Enemies
  
-#----------------------------------------------------------------------------------------------------------------------------
+---
 
 ## Ferdinand
 - **Name:** Full name of the character.
@@ -390,12 +390,12 @@
 - **Inspiration:** Sources of inspiration for the character.
 - **Future Development:** Ideas for character growth or potential plot points involving the character.
 
-#------------------------------------------------------------------------------------------------------------------------------
+---
 
 ### **Family**
 
-#------------------------------------------------------------------------------------------------------------------------------
+---
 
 ### **Third Party**
 
-#------------------------------------------------------------------------------------------------------------------------------
+---
