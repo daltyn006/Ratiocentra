@@ -245,7 +245,7 @@ meet Muhammed, and it went better than expected. She was now wed to him. He had 
 her his tale of how he came to be such a businessman. He had met with Gabriel, a
 businessman from Britain. With just three handshakes, he now owned a banana plant,
 coffee plant, and some sort of transportation service. From all, he profited immensely. But
-Monika really didn’t care about how much money he made; she only cared about him.
+Monika really didn't care about how much money he made; she only cared about him.
 Although he was noticeably illiterate, his body looks made up for this. And her wedding
 night was amazing. Muhammed had dictated this to be the last meeting at Monika’s cabin,
 and she had agreed to this since she did not enjoy the cold of winter. She would rather live
