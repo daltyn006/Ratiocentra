@@ -85,14 +85,14 @@
 - **Soul:** No
 - **Physical Appearance:** 24-24 years old, Female, [empty]
 - **Nationality/Culture:** Caucasian-Asian 
-- **Occupation/Profession:** [empty]
+- **Occupation/Profession:** artist 
 
 **Personality**
 - **Traits:** Externally angry, internally depressed, sharp, direct
 - **Motivations:** Desire to do what's best for the world
 - **Conflict:** Impulsiveness vs. careful consideration
 - **Relationships:** Love interest to Grant and others
-- **Quirks:**
+- **Quirks:** Fails to see things from a unique perspective and does not question. 
 
 **Background**
 - **Family:** Orphan to parents killed after tests
@@ -103,13 +103,13 @@
 **Plot Points**
 - **Role in Story:** False positive influence over Grant.
 - **Goals and Arc:** Initially opposes Grant's plans but eventually comes around to his perspective
-- **Key Relationships:** Grant Pewdershmitt
-- **Important Decisions:** [empty]
+- **Key Relationships:** Grant Pewdershmitt, Nurses
+- **Important Decisions:** Being with Grant
 
 **Dialogue Patterns**
 - **Speech Patterns:** Sharp, direct, [empty]
 - **Idioms and Catchphrases:** [empty]
-- **Body Language:** [empty]
+- **Body Language:** Flirtatious, sly, manipulative || seductive
 
 **World Interaction**
 - **Environment:** [empty]
@@ -119,11 +119,7 @@
 **Notes and Observations**
 - **Imagery:** [empty]
 - **Inspiration:** [empty]
-- **Future Development:** [empty]
-  
-
-
-
+- **Future Development:* She dies in her test from helping a soulless being to stay alive. 
 
 
 
