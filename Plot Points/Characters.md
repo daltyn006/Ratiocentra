@@ -10,7 +10,7 @@ Index:
 
 Grant Pewdershmitt:
     23->25 years old, Male
-    Narcissistic and 
+    Narcissistic, pessimistic, satirical, ironical, internally angry, externally a madman
     Caucasian, brown half sweep hairstyle, brown eyes, square face, 6' skinny body.  unkempt.
     main character- plot revolves to his actions but does not focus fully on him
 
@@ -18,9 +18,11 @@ Grant Pewdershmitt:
             Born of Mr. Pewdershmitt ("Father") and Mrs. Pewderhsmitt, he went through life carelessly and aimlessly; 
 ahead of his grades and barely needing to pay attention in class until the 13th grade. After which he focused heavily
  on philosophy, psychology, and politics. He has been "arrested" twice and put in jail for seemingly normal "free speech" 
-things which is entirely reasonable. Although he was centered as a young man, 
+things which is entirely reasonable. Although he was centered as a young man, Manda Eeven brought him to question
+what was going on in life and how society was handling their problems, not doing the "good" thing but the "rational"
+thing. 
 
-  - Regrets nothing.
+  - Very much does not have regrets, rarely remembers the past.
   - Secretly has multiple crushes that is not "normal" for the time period.
   - Motivations: love interest, ego, and stubbornness.
   - Voice and Behavior- dynamic masculine mid-tonal.
@@ -34,3 +36,40 @@ Relationships:
 
 Evolution: 
       Does not change throughout the novel, only adapts what he knows to his surroundings and forces his surroundings to change to him. 
+
+
+Manda[line] Eeven
+    22 -> 24 years old, Female
+    Externally angry, internally depressed, straight to the point, sharp and straight as a knife
+
+   Background: 
+         Born of two parents unimportant to the story, Manda wants what's best for the world but is unwilling to think things through; only 
+  
+  
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+A
