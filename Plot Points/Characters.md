@@ -139,18 +139,18 @@
 
 **Background**
 - **Family:** Mr. Mrs. Hearth, sister Lyra
-- **Education:** Took out of school after adequate basic knowledge and put under 
-- **Life Events:** Major life events that have shaped the character.
+- **Education:** Took out of school after adequate basic knowledge and put under training
+- **Life Events:** Loss of his mother made him angry, which drives his smithing prowess.
 - **Skills:** innately strong arms, fat belly; knows his way around a hammer and can get out of situations well.
 
 **Plot Points**
-- **Role in Story:** How the character fits into the overall story.
-- **Goals and Arc:** What the character wants and how they change throughout the story.
+- **Role in Story:** He acts as the escapist and comic relief.
+- **Goals and Arc:** He aims to help out whenever he can, but leaves after the rest of the group gets in too deep; slowly gets more serious.
 - **Key Relationships:** Who the character interacts with and their significance in the story.
-- **Important Decisions:** Crucial choices that the character makes.
+- **Important Decisions:** Whether to help or not in a perilous situation with Grant
 
 **Dialogue Patterns**
-- **Speech Patterns:** How the character speaks, including accent, slang, and dialect.
+- **Speech Patterns:** boasting, booming voice, hearty and tonal chest.
 - **Idioms and Catchphrases:** Unique phrases that the character often uses.
 - **Body Language:** Posture, gestures, and facial expressions that convey their mood and intentions.
 
