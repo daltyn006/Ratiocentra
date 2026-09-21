@@ -113,7 +113,7 @@
 
 **World Interaction**
 - **Environment:** grown in an orphanage, looks for the best - never finds it. 
-- **Social Status:** lowly whore.
+- **Social Status:** seen as "white trash" type
 - **Politics/Religion:** loves the world, hates humanity
 
 **Notes and Observations**
