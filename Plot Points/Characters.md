@@ -114,7 +114,7 @@
 **World Interaction**
 - **Environment:** grown in an orphanage, looks for the best - never finds it. 
 - **Social Status:** lowly whore.
-- **Politics/Religion:** loves the world, hates humanity.
+- **Politics/Religion:** loves the world, hates humanity
 
 **Notes and Observations**
 - **Imagery:** [empty]
