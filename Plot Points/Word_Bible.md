@@ -120,10 +120,10 @@ Characters:
     grant pewdershmitt // is barely a rational being, has been arrested multiple times for protesting with munk
     
     love interest:
-       munk eeven //dies after the coma testing (not sentient) ignites rebellion in her peers
+       Manda eeven //dies after the coma testing (not sentient) ignites rebellion in her peers
        linda iverson //is a rational being that turns out to be actually insane (grant's perscribed wife)
 
-    archrivals:
+    archrivals:?
     ///section 1 of the storyline, since populous is so small anything that is significant is dealt with directly
       ferdinand: legislative
       emmerson: vice president + major religious figure
