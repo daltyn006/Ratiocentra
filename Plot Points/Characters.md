@@ -42,29 +42,6 @@
 
 #------------------------------------------------------------------------------------------------------------------------------
 
-## Grant Pewdershmitt:
-    23->25 years old, Male
-    Narcissistic, pessimistic, satirical, ironical, internally angry, externally a madman
-    Caucasian, brown half sweep hairstyle, brown eyes, square face, 6' skinny body.  unkempt.
-    protagonist - plot revolves to his actions but does not focus fully on him
-  
-    Background:
-            Born of Mr. Pewdershmitt ("Father") and Mrs. Pewderhsmitt, he went through life carelessly and aimlessly; 
-ahead of his grades and barely needing to pay attention in class until the 13th grade. After which he focused heavily
- on philosophy, psychology, and politics. He has been "arrested" twice and put in jail for seemingly normal "free speech" 
-things which is entirely reasonable. Although he was centered as a young man, Manda Eeven brought him to question
-what was going on in life and how society was handling their problems, not doing the "good" thing but the "rational"
-thing. 
-
-  - Very much does not have regrets, rarely remembers the past.
-  - Secretly has multiple crushes that is not "normal" for the time period.
-  - Motivations: love interest, ego, and stubbornness.
-  - Voice and Behavior- dynamic masculine mid-tonal.
-  - mannerisms- anxious, fidgety, "overly happy insanity", wild mood shifts
-  - stress response - fidgets heavily, stops blinking, 
-  - paranoid and hallucinates what he perceives as true in his mind
-
-
 ## Grant Pewdershmitt
 - **Physical Appearance:** 23-25 years old, Male
 - **Has Soul:** no
@@ -84,15 +61,15 @@ thing.
 - **Key Relationships:** Positive and Negative, story revolves around him and branches from there
 
 - **Speech Patterns:** Dynamic masculine mid-tonal
-- **Idioms and Catchphrases:** "being right too soon isn't socially acceptable" 
+- **Idioms and Catchphrases:** "I watch and am watched" 
 - **Body Language:** Anxious, fidgety, "overly happy insanity", wild mood shifts
 
-- **Environment:** [empty]
+- **Environment:** dynamic, comforting to adversarial -> in Places.md
 - **Social Status:** unpopular anarchist that people tend to avoid 
 
 - **Imagery:** [empty]
 - **Inspiration:** "some people want to watch the world burn" 
-- **Future Development:** chaotic character that 
+- **Future Development:** chaotic character that only comes to realize what his errors are after he goes through his testing
 ```
 
 
