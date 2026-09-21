@@ -64,11 +64,34 @@ thing.
   - paranoid and hallucinates what he perceives as true in his mind
 
 
-Relationships: 
-      TBD after other characters built
+## Grant Pewdershmitt
+- **Physical Appearance:** 23-25 years old, Male
+- **Nationality/Culture:** Caucasian, brown half-sweep hairstyle, brown eyes, square face, 6' skinny body, unkempt
+- **Occupation/Profession:** Overall Failure, political protestor. given the opprotunity to 
 
-Evolution: 
-      Does not change throughout the novel, only adapts what he knows to his surroundings and forces his surroundings to change to him. 
+- **Traits:** Narcissistic, pessimistic, satirical, ironical, internally angry, externally a madman
+- **Motivations:** Love interest, ego, and stubbornness
+- **Conflict:** [empty]
+
+- **Family:** Born of Mr. Pewdershmitt ("Father") and Mrs. Pewdershmitt
+- **Education:** Ahead of his grades until the 13th grade; focused heavily on philosophy, psychology, and politics
+- **Life Events:** Carefree and aimless until Manda Even brought him to question societal issues
+
+- **Role in Story:** Protagonist - plot revolves around his actions but does not focus fully on him
+- **Goals and Arc:** [empty]
+- **Key Relationships:** [empty]
+
+- **Speech Patterns:** Dynamic masculine mid-tonal
+- **Idioms and Catchphrases:** [empty]
+- **Body Language:** Anxious, fidgety, "overly happy insanity", wild mood shifts
+
+- **Environment:** [empty]
+- **Social Status:** [empty]
+
+- **Imagery:** [empty]
+- **Inspiration:** [empty]
+- **Future Development:** [empty]
+```
 
 
 ## Manda[line] Eeven
