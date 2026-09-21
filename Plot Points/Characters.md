@@ -1,5 +1,5 @@
 
-### **Index**
+### **Outline**
 - **Name:** Full name of the character.
 - **Soul:** if the character is rational in the eyes of science or not
 - **Physical Appearance:** Height, weight, hair color, eye color, age, and any other relevant physical characteristics.
