@@ -204,7 +204,7 @@
 - **Politics/Religion:** Hates the system for killing a lot of the people around him. 
 
 **Notes and Observations**
-- **Imagery:** 
+- **Imagery:** Skinny guy, small penis
 - **Inspiration:** Jesse Pinkman
 - **Future Development:** Ideas for character growth or potential plot points involving the character.
 
