@@ -127,14 +127,14 @@
   
 -**Age and Gender:** 21 -> 23 yo Female
 - **Soul:** Yes
-- **Physical Appearance:** 5'5", 230lbs, red hair, red eyes, kept and clean, chubby happy demeanor.
-- **Nationality/Culture:** German Caucasian
-- **Occupation/Profession:** Smithing Trainee, enjoys his purpose even though people don't really need his tools
+- **Physical Appearance:** 4'9", 140lbs,  dark amber hair, emerald eyes, kept and clean, cutesy small stature.
+- **Nationality/Culture:** Irish Caucasian
+- **Occupation/Profession:** [empty]
 
 **Personality**
-- **Traits:** Positive, negative, and neutral traits.
+- **Traits:** attractive and seductive. .
 - **Motivations:** What drives the character? What are their goals and desires?
-- **Conflict:** Internal and external conflicts that the character faces.
+- **Conflict:** hates how Manda has changed Grant to not accept the murder.
 - **Relationships:** Family, friends, romantic interests, and enemies.
 - **Quirks:** Habits, likes, dislikes, and superstitions
 
