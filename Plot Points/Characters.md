@@ -108,7 +108,7 @@
 
 **Dialogue Patterns**
 - **Speech Patterns:** Sharp, direct, persecuting 
-- **Idioms and Catchphrases:** "things aren't always what they're meant to be" 
+- **Idioms and Catchphrases:** "why don't you think of what's good" 
 - **Body Language:** Flirtatious, sly, manipulative || seductive
 
 **World Interaction**
