@@ -91,14 +91,14 @@
 - **Traits:** Externally angry, internally depressed, sharp, direct
 - **Motivations:** Desire to do what's best for the world
 - **Conflict:** Impulsiveness vs. careful consideration
-- **Relationships:** Love interest to Grant and others
-- **Quirks:** Fails to see things from a unique perspective and does not question. 
+- **Relationships:** Love interest to Grant; found him in a bar after he stabbed himself on a broken beer bottle.
+- **Quirks:** Fails to see things from a unique perspective and does not question
 
 **Background**
 - **Family:** Orphan to parents killed after tests
 - **Education:** dropped out after the 12th grade
 - **Life Events:** often in and out of prisons and bars. 
-- **Skills:** [empty]
+- **Skills:** veterinarian, nursing, caring. 
 
 **Plot Points**
 - **Role in Story:** False positive influence over Grant.
