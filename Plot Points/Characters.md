@@ -1,12 +1,11 @@
 Index: 
-Core Identity: Full name, age, gender, appearance, and role in the story. 
-Backstory: Significant past events, regrets, secrets, and formative experiences that shape their current worldview. 
-Motivations: wants (external goal), needs (internal growth), and fears (internal conflict). 
-Voice and Behavior: Specific dialogue patterns, catchphrases, mannerisms, and stress responses to ensure authentic representation. 
-Relationships: Detailed connections to other characters, including alliances, rivalries, and emotional ties. 
-Evolution: Tracking physical, emotional, or skill-based changes throughout the narrative arc. 
-
-Specific Details: Add unique traits (e.g., favorite food, specific habits) to make characters feel lifelike and distinct. 
+- Core Identity: Full name, age, gender, appearance, and role in the story. 
+  - Backstory: Significant past events, regrets, secrets, and formative experiences that shape their current worldview. 
+  - Motivations: wants (external goal), needs (internal growth), and fears (internal conflict). 
+  - Voice and Behavior: Specific dialogue patterns, catchphrases, mannerisms, and stress responses to ensure authentic representation. 
+  - Relationships: Detailed connections to other characters, including alliances, rivalries, and emotional ties. 
+  - Evolution: Tracking physical, emotional, or skill-based changes throughout the narrative arc. 
+  - Specific Details: Add unique traits (e.g., favorite food, specific habits) to make characters feel lifelike and distinct. 
 
 
 Grant Pewdershmitt:
