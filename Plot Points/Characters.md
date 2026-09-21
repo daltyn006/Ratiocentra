@@ -204,10 +204,9 @@
 - **Politics/Religion:** Hates the system for killing a lot of the people around him. 
 
 **Notes and Observations**
-- **Imagery:** Skinny guy, small penis
+- **Imagery:** Skinny guy
 - **Inspiration:** Jesse Pinkman
-- **Future Development:** Ideas for character growth or potential plot points involving the character.
-
+- **Future Development:** He goes from genuinely reliable and helpful to not being able to stop doing drugs when in important roles. 
 
 
 
@@ -218,7 +217,7 @@
 
 -**Age and Gender:** 23 -> 25 yo Male
 - **Soul:** Yes
-- **Physical Appearance:** 5'5", 230lbs, red hair, red eyes, kept and clean, chubby happy demeanor.
+- **Physical Appearance:** 5'6 ", 190lbs, blonde hair, pearly blue eyes, kept and clean, skinny.
 - **Nationality/Culture:** German Caucasian
 - **Occupation/Profession:** Smithing Trainee, enjoys his purpose even though people don't really need his tools
 
