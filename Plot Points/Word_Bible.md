@@ -1,15 +1,3 @@
-Storyline Plot Points:
-
-"not all humans are rational, and some humans have better rationalization than others." 
-
-"Highscooler" 25y.o
-
-Lives within a fully "Ratiocentrist" society
-"coma testing" - for "rationalist thought" science-fiction 
-practices lucid dreaming to pass the coma test
-futuristic utopian society
-low birth rates but not noticed 
-active genocide 
 
 
 Leaders are practically trying to take the most rational of humanity and selective breeding them to make a smarter humanity at the cost of thousands of lives. Those who survive the rationalist test where they are put into a coma and their brains are scanned to see if they remain conscious inside of a coma, which is the only medical advancement that was able to be made. Those killed are not "directly moreally considerable"
@@ -110,56 +98,3 @@ How this came to be:
         foods presented no souls, but wild nature showed soulful. humanity had been able to communicate with trees as well, of which decided to stay where they were 
         trees also sacrificed themselves and the life around them to stop forest fires and horrible things from happening to the life around them and for our benefits
         
-scary point, main character strangles a child to death trying to save them from a mosnster
-
-Characters: 
-    Ages range from 18-150, science has proven life to last longer if they "follow the natural order of things" 
-    those that make it past 25 live exceedingly long lives
-  Main plotline:
-    father pewdershmitt
-    grant pewdershmitt // is barely a rational being, has been arrested multiple times for protesting with munk
-    
-    love interest:
-       Manda eeven //dies after the coma testing (not sentient) ignites rebellion in her peers
-       linda iverson //is a rational being (grant's perscribed wife)
-
-    archrivals:?
-    ///section 1 of the storyline, since populous is so small anything that is significant is dealt with directly
-      ferdinand: legislative
-      emmerson: vice president + major religious figure
-      gerard: president executive
-    /// section 2 of the storyline
-      herald: treasurer (actual leader and everyone recognizes it) 
-        -- oldest member of the government at 135, procedure was messed up and he has a twitch of his finger and stiffness of his lip that still effects him.
-      jamerson: judicial (main nemisis) 
-      karpen: millitary (biggest threat, since millitary and police are combined)
-
-    neutral objective immoral people: 
-        zimmerman (150): doctor
-        frederica (35): female leader of the rebellion 
-        
-    "friends":
-      dander 
-      christoph //dies after the coma 
-      beorme //dies after the coma 
-      anderson 
-      
-
-  Side Characters:
-    mother pewdershmitt
-    nurse
-    doctors
-    Workers:
-        yahne
-        patrica
-        margaret
-        
-  Rational Beasts:
-      family dog 
-      -- The Zoo
-  Plant Life [honorable mentions]: 
-    Ferns
-    Birch Trees 
-    Oak Trees 
-    Etc. 
-    
