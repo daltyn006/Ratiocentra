@@ -110,7 +110,7 @@ How this came to be:
         foods presented no souls, but wild nature showed soulful. humanity had been able to communicate with trees as well, of which decided to stay where they were 
         trees also sacrificed themselves and the life around them to stop forest fires and horrible things from happening to the life around them and for our benefits
         
-
+scary point, main character strangles a child to death trying to save them from a mosnster
 
 Characters: 
     Ages range from 18-150, science has proven life to last longer if they "follow the natural order of things" 
@@ -121,7 +121,7 @@ Characters:
     
     love interest:
        Manda eeven //dies after the coma testing (not sentient) ignites rebellion in her peers
-       linda iverson //is a rational being that turns out to be actually insane (grant's perscribed wife)
+       linda iverson //is a rational being (grant's perscribed wife)
 
     archrivals:?
     ///section 1 of the storyline, since populous is so small anything that is significant is dealt with directly
