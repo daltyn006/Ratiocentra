@@ -88,7 +88,7 @@
 
 - **Name:** Mandaline Eeven
 - **Soul:** No
-- **Physical Appearance:** 4'11", ~150lbs, 23-24 years old, Female, small and slightly chubby in a cute way, somewhat healthy alcoholic, one year older than Grant
+- **Physical Appearance:** 4'11", ~150lbs, 25-25 years old, Female, small and slightly chubby in a cute way, somewhat healthy alcoholic, one year older than Grant
 - **Nationality/Culture:** Caucasian-Asian
 - **Occupation/Profession:** Artist
 
@@ -129,7 +129,7 @@
 
 ## Lindesay Iverson
 
-- **Age and Gender:** 21 -> 23 yo Female
+- **Age and Gender:** 25 -> 26 yo Female
 - **Soul:** Yes
 - **Physical Appearance:** 4'9", 140lbs, dark amber hair, emerald eyes, kept and clean, cutesy small stature
 - **Nationality/Culture:** Irish Caucasian
@@ -305,7 +305,7 @@
 
 ## Daneder Theurn
 
-- **Age and Gender:** 23 -> 25 yo Male
+- **Age and Gender:** 25 -> 25 yo Male
 - **Soul:** Yes
 - **Physical Appearance:** 5'7",  140lbs, blonde hair, hazel eyes, 
 - **Nationality/Culture:** British Caucasian
