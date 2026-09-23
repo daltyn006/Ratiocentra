@@ -218,7 +218,7 @@
 
 ## Beorme Vodkin
 
-- **Age and Gender:** 16 -> 19 yo Male
+- **Age and Gender:** 16 -> 18 yo Male
 - **Soul:** No
 - **Physical Appearance:** 6'3", 150lbs, black hair, green eyes, kept and clean, average looking face, ugly forehead
 - **Nationality/Culture:** American
@@ -266,35 +266,35 @@
 - **Soul:** Yes
 - **Physical Appearance:** 5'6", 190lbs, blonde hair, pearly blue eyes, kept and clean, skinny
 - **Nationality/Culture:** German Caucasian
-- **Occupation/Profession:** Smithing Trainee, enjoys his purpose even though people don't really need his tools
+- **Occupation/Profession:** Wilderness survival trainee, ranger in training
 
 **Personality**
-- **Traits:** [empty]
-- **Motivations:** [empty]
-- **Conflict:** [empty]
-- **Relationships:** [empty]
-- **Quirks:** [empty]
+- **Traits:** Genuine, 
+- **Motivations:** Supporting other friends which have been known through their years
+- **Conflict:** Has to question his friendship with Beorme and Grant
+- **Relationships:** Friends with Grant and the Rest
+- **Quirks:** Uniquely smart about wilderness living. 
 
 **Background**
-- **Family:** [empty]
-- **Education:** [empty]
-- **Life Events:** [empty]
-- **Skills:** [empty]
+- **Family:** unimportant, loving mother and father. 
+- **Education:** Smart, but not knowledgeable of anything specific. 
+- **Life Events:** Nothing traumatic, usual character
+- **Skills:** Rational and thought provoking, sees things as they are. 
 
 **Plot Points**
-- **Role in Story:** [empty]
+- **Role in Story:** Balancing character who digs into different thoughts of society. 
 - **Goals and Arc:** [empty]
-- **Key Relationships:** [empty]
-- **Important Decisions:** [empty]
+- **Key Relationships:** The rest of the Gang
+- **Important Decisions:** Has to decide whether to help Grant at the end. 
 
 **Dialogue Patterns**
-- **Speech Patterns:** [empty]
+- **Speech Patterns:** repeats himself and questions if he's said something on occasion.
 - **Idioms and Catchphrases:** [empty]
-- **Body Language:** [empty]
+- **Body Language:** Open, full fluids, stable
 
 **World Interaction**
-- **Environment:** [empty]
-- **Social Status:** [empty]
+- **Environment:** the wilderness, gets along with the rest when he's not needed.
+- **Social Status:** Decently popular at the Zoo, popular with people too
 - **Politics/Religion:** [empty]
 
 **Notes and Observations**
@@ -308,27 +308,27 @@
 
 - **Age and Gender:** 23 -> 25 yo Male
 - **Soul:** Yes
-- **Physical Appearance:** 5'5", 230lbs, red hair, red eyes, kept and clean, chubby happy demeanor
-- **Nationality/Culture:** German Caucasian
-- **Occupation/Profession:** Smithing Trainee, enjoys his purpose even though people don't really need his tools
+- **Physical Appearance:** 5'7",  140lbs, blonde hair, hazel eyes, 
+- **Nationality/Culture:** British Caucasian
+- **Occupation/Profession:** Sex fiend, lustful and really likes the company of women
 
 **Personality**
-- **Traits:** [empty]
-- **Motivations:** [empty]
-- **Conflict:** [empty]
-- **Relationships:** [empty]
-- **Quirks:** [empty]
+- **Traits:** happy and uncensored, very much an asshole
+- **Motivations:** having a break from trying to get with women
+- **Conflict:** Has to give up what he desires in the dream
+- **Relationships:** Mostly separate from the group, always with girls
+- **Quirks:** Always bumping into Manda and decides to introduce her to the group
 
 **Background**
-- **Family:** [empty]
-- **Education:** [empty]
+- **Family:** None
+- **Education:** Very little
 - **Life Events:** [empty]
 - **Skills:** [empty]
 
 **Plot Points**
 - **Role in Story:** [empty]
 - **Goals and Arc:** [empty]
-- **Key Relationships:** [empty]
+- **Key Relationships:** Grant and the Gang
 - **Important Decisions:** [empty]
 
 **Dialogue Patterns**
