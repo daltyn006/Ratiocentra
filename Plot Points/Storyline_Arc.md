@@ -16,7 +16,7 @@
  - Informs about Beorme 
  - Is a little more spooky
 ###Hasseokea
-  - class held in 
+  - class held in Hasseokea
   - reintroduces the characters 
   - accurate to the dream
   - eases back on the spookiness
