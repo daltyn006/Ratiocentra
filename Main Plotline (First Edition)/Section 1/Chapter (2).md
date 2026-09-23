@@ -4,23 +4,33 @@ I watched the darkness smear my vision as I closed my eyes. The harsh whistling 
 
 I opened my eyes to see a most beautiful view, a half full glass of amber whiskey. I had landed in my leather arm chair, friends surrounding me, celebrating our survival. The whiskey was warmer than it should have been, and I drank it anyway. My leather chair held me the way it always did, worn soft in the shape of every night I'd spent in it, and for a while that was enough.
 
-"To the men who can not die," Anderson said, raising his glass so high it nearly caught the lamp. His face was already red from something other than drink. "Second time this year, if we're counting."
+"To the men who didn't die," Anderson said, raising his glass so high it nearly caught the lamp. His face was already red from something other than drink. "Second time this year, if we're counting." 
 
 "We're not counting," Cristoph said. "We agreed we weren't counting."
 
-"You agreed. I'm counting." Anderson laughed at his own joke before anyone else could.
+"You agreed. I'm counting." Anderson laughed at his own joke before anyone else could. His fat belly jiggled heavily as he did, a huge contrast to his toned arms. 
 
-Beorme hadn't sat down. He orbited the room in a slow drift, touching the backs of chairs, the edge of the bookshelf, his own collarbone, like he was checking that the furniture was still where he'd left it. "Whose whiskey is this," he asked, "It's shit".
+Beorme hadn't sat down. He orbited the room in a slow drift, touching the backs of chairs, the edge of the bookshelf, his own collarbone, scratching at his forearms, like he was checking that the furniture was still where he'd left it. "Whose whiskey is this," he asked, of no one.
 
 "Mine," I said. "Sit down."
 
 "I am sitting down." He was not.
 
-Daneder had his boots up on the table and his eyes half shut, the particular ease of a man who had already decided the night owed him nothing more. "You're all being morbid," he said. "It's a celebration." he gestured his arms in a round of grandeur as if to grasp for someone not there.
+Daneder had his boots up on the table and his eyes half shut, the particular ease of a man who had already decided the night owed him nothing more. "You're all being morbid," he said. "It's a celebration."
+
+"Two years since mine," Cristoph said, unprompted, still watching his glass. "I still hear the hum sometimes. Waiting rooms. Machinery."
+
+"That's because you never took a real vacation," Anderson said. "Go somewhere with actual quiet. It'll drown it out eventually."
+
+"Or it stops when it stops," Beorme said, from wherever he'd drifted to now. His voice had gone flat, the joke gone out of him. "Doesn't matter what you do in between."
+
+Nobody answered that, and for a moment the room agreed silently to let it sit there unanswered, the way you let a spilled drink sit until someone decides whose job it is to clean it up. Anderson filled the silence the only way he knew how, with more whiskey and a toast nobody had asked for. "To all of us," he said. "Still walking around with our thoughts where we left them."
+
+"Still counting," Cristoph said, and this time even he almost smiled.
 
 I meant to say something back. I don't know what. I blinked instead, the way you blink when smoke gets in your eyes, and when I opened them the room was only a room — the chair, the lamp, the glass sweating a ring into the leather arm — and my friends were not gone so much as they had simply stopped being there to leave, the way a word stops meaning anything if you say it enough times. I did not go looking for them. Some part of me understood, the way you understand things in dreams without being told, that they were a different night than the one I was standing in now.
 
-The town at that hour belonged to no one. The roads had dimmed themselves past midnight, chalk white gone the color of old teeth, and the after-work crowd that never quite existed in Beskyddaren was elsewhere too, wherever such crowds go when a town has no work to be after. I passed a raccoon family crossing unhurried through a doorway that wasn't theirs, and further on, a man asleep sitting upright against a storefront that sold nothing, and I said hello to no one because there was no one left worth the effort. I noticed, the way I sometimes noticed useless things, that the clouds were thin that night, and that I could nearly see through them to whatever was on the other side.
+The town at that hour belonged to no one. The roads had dimmed themselves past midnight, chalk white gone the color of old teeth, and the after-work crowd that never quite existed here was elsewhere too, wherever such crowds go when a town has no work to be after. I passed a raccoon family crossing unhurried through a doorway that wasn't theirs, and further on, a man asleep sitting upright against a storefront that sold nothing, and I said hello to no one because there was no one left worth the effort. Somewhere behind me a machine swept the road in slow, patient arcs, gathering nothing, because there was nothing left to gather that the night hadn't already claimed. I passed a house with every light on and no one inside it that I could see, curtains open to a room that didn't need to perform emptiness for anybody. My bare feet found the pavement's usual softness, cool and gone slightly damp with whatever passed for dew this far into the dark, and for the length of a few streets I let myself believe that was all it was — pavement, cool and pale and ordinary, nothing underneath it worth mentioning. I noticed, the way I sometimes noticed useless things, that the clouds were thin that night, and that I could nearly see through them to whatever was on the other side.
 
 At the low wall where the town gave way to the park, a boy stood waiting, hand out flat.
 
@@ -30,15 +40,19 @@ At the low wall where the town gave way to the park, a boy stood waiting, hand o
 
 He considered this with a patience that didn't belong on a face that young. "Then your eyes," he said, not unkindly. "You're not using them right anyway."
 
-I did not give him my eyes. How could I? I rushed past him before he could ask again. I continued past the wall which gave way to tall grass, and the grass gave way to the dark line of the trees, and no one followed.
+"How would you know what I do with them," I asked, more out of habit than actual offense.
 
-The park still remembered how to be quiet, which was more than the rest of the town could say for itself. Squirrels ran the path ahead of me chasing some small bounty I couldn't see. I found a bench with a gap in the branches above and sat, not tired, only slowing the way a dream slows when it wants you to notice something. The heavens were dark at first, only the one star visible, enclosed in a cloud that seemed to be deciding whether to let it go. I sat with that a long while. I have never been a patient man in waking life, but the dream did not ask my permission to make me one.
+He shrugged, the particular shrug of someone who had already moved past caring whether you took the point. "Everybody says that. Then they walk right past whatever's worth looking at." He nodded toward the trees, toward nothing I could see yet from where I stood. "Go on, then. Toll's still fifteen for the way back, if you're wondering."
 
-Something pale showed through the grass at the foot of the bench, too regular to be root or stone. I knelt and brushed the dirt from it and found a star, five-pointed, cut clean into a slab of pale marble flush with the earth. Once I knew to look, there were others — dozens, then more than I could count, each one a small closed mouth in the ground with something engraved inside it, most of it worn past reading. One was still legible. No name I recognized, and beneath it, no dates, only *she gave what the ground asked for.* I knelt there a long time with the ash-white dirt working itself under my nails, and I understood, finally and all at once, exactly what the ground had always been asking for, and exactly what my own streets were built from, and I found that some part of me had known it the whole time — the way you always know, eventually, the thing you've spent your whole life walking on top of.
+I did not give him my eyes. I stepped past him before he could ask again, and the wall gave way to grass, and the grass gave way to the dark line of the trees, and no one followed.
+
+The park still remembered how to be quiet, which was more than the rest of the town could say for itself. Squirrels ran the path ahead of me chasing some small bounty I couldn't see. They circled a low root twice before one gave up and let the other keep whatever it was they'd been contesting — a shard of something bright, glass or bone, I couldn't tell from that distance and didn't want to close it. Even the animals here had learned the trick of taking turns with things nobody needed. I found a bench with a gap in the branches above and sat, not tired, only slowing the way a dream slows when it wants you to notice something. The heavens were dark at first, only the one star visible, enclosed in a cloud that seemed to be deciding whether to let it go. I sat with that a long while. I have never been a patient man in waking life, but the dream did not ask my permission to make me one.
+
+Something pale showed through the grass at the foot of the bench, too regular to be root or stone. I knelt and brushed the dirt from it and found a star, five-pointed, cut clean into a slab of pale marble flush with the earth. Once I knew to look, there were others — dozens, then more than I could count, each one a small closed mouth in the ground with something engraved inside it, most of it worn past reading. I tried a few anyway, running my thumb along letters smoothed nearly back into stone, and got nothing back but shapes that might have been names or might have been dates or might have been nothing at all, just the ghost of the idea of writing, the way a word looks after you've stared at it too long and it stops meaning anything. A scatter of something pale lay across one of the nearer stones — petals, or ash, I couldn't tell, and didn't touch it to find out. One was still legible. No name I recognized, and beneath it, no dates, only *she gave what the ground asked for.* I knelt there a long time with the ash-white dirt working itself under my nails, and I understood, finally and all at once, exactly what the ground had always been asking for, and exactly what my own streets were built from, and I found that some part of me had known it the whole time — the way you always know, eventually, the thing you've spent your whole life walking on top of.
 
 I looked up.
 
-The sky over Beskyddaren has never had many stars in it. I had counted on that — had wanted, absurdly, only darkness, only the plain relief of nothing looking back. But there were stars that night, thousands of them, and they were not still. They moved the way a held breath moves. They blinked, and in blinking they found me, and I understood that they had been finding me the whole time, only I had never once thought to look up and let myself be found. I was enlightened in the ugliest sense of the word — the kind of seeing that cannot be unseen, that asks nothing of you afterward except to keep carrying it.
+The sky above the town has never had many stars in it. I had counted on that — had wanted, absurdly, only darkness, only the plain relief of nothing looking back. But there were stars that night, thousands of them, and they were not still. They moved the way a held breath moves. They blinked, and in blinking they found me, and I understood that they had been finding me the whole time, only I had never once thought to look up and let myself be found. I was enlightened in the ugliest sense of the word — the kind of seeing that cannot be unseen, that asks nothing of you afterward except to keep carrying it.
 
 My heart betrayed me before my mind did. It went first, hammering somewhere past reason, and my mind — slower, always slower — reached backward for something to hold onto, and what it found was the night before. Not years before. Last night.
 
@@ -46,25 +60,37 @@ My heart betrayed me before my mind did. It went first, hammering somewhere past
 
 It was an ordinary night, which was somehow worse to remember than the celebration had been. No toasts. Just the five of us, or what would become five of us, in the same room on an evening that hadn't earned any significance yet.
 
-Daneder came in the way he always did, unhurried, and he wasn't alone. "This is Manda," he said. "Found her outside the studio. Wouldn't say what she was doing there."
+Daneder came in the way he always did, unhurried, and he wasn't alone. "This is Manda," he said. "Stopped me outside the studio and told me I looked like I needed better company than mine. Wasn't in a position to argue."
 
-"I wasn't doing anything," she said. She found a place near the door that wasn't quite in the room and wasn't quite out of it, one shoulder against the frame, and her eyes went around once, cataloguing, before they landed — not on Daneder, who had brought her — but on me.
+She didn't wait for an introduction to finish itself. She crossed the room and took the chair across from me like she'd been invited weeks ago, not five minutes. "Artist," she said, before I'd asked. "Music, mostly. I finish what's worth finishing and burn the rest." Her eyes hadn't left mine since she'd sat down. "You're the one who talks about being watched."
 
-"What do you do," I asked her, mostly to have something to say.
+"Something like that."
 
-"I'm — " A pause that answered a different question than the one I'd asked. "An artist."
+"I've heard worse ways to think about yourself." She said it like an accusation and a compliment at once, the particular trick she had of making you unsure which you'd been given. "Most people spend their whole lives making sure nobody's looking. Seems like a waste of the time you've got left."
 
-"What do you make?"
+"You found this one fast," Anderson said to Daneder, not unkindly, already refilling a glass that didn't need it. "Personal record, at this rate."
 
-"Music, mostly. Sometimes I don't finish it." She said it to me, not to the room, the whole time. "I like the forest better than the town, if I'm honest. Fewer roads to remember not to look at."
+"I don't find them," Daneder said. "They find me. I just have the good sense not to run."
 
-I didn't ask what she meant. Some part of me already knew, the way you know a word in a dream without ever being told it.
+"She found you standing outside a building at midnight," Cristoph said, not looking up. "That's not exactly a high bar to clear."
+
+"It's a lower bar than you'd clear," Manda said, without looking away from me, and something in the flatness of it made even Cristoph's mouth twitch toward a smile he didn't let finish.
+
+Beorme laughed too loud at that, the particular laugh he used when he wanted to be included in something he hadn't quite followed, and then went quiet again, touching the bookshelf, touching his own collarbone, some private inventory only he could read the results of.
+
+"You're not from around here," I said to her, mostly because the silence after Beorme's laugh had gone on a beat too long.
+
+"I'm not from anywhere in particular." She said it the way you'd state a fact about the weather. "I've found it's easier not to be."
+
+She reached over and took the drink out of my hand without asking, and drank from it anyway.
 
 Anderson refilled a glass no one had asked him to refill. Beorme touched the edge of the bookshelf, then his own collarbone, checking. Cristoph turned his own glass slowly, watching it climb and fall. It was, all of it, so unremarkable that I could not tell you, even now, what made me say it — only that I had said it a hundred nights before this one, and it had never once meant anything until it did.
 
 "I watch and am watched," I said.
 
-The room went still around it. Manda's eyes, already on me, sharpened. "Say that again," she said.
+The room went still around it. Manda's eyes, already on me, sharpened. "Say that again," she said — and then, quieter, almost to herself, the reflex of a woman who'd spent a lifetime finding a good side to stand on, "Think of what's good."
+
+It didn't work. I don't think she expected it to.
 
 "I watch and am watched."
 
