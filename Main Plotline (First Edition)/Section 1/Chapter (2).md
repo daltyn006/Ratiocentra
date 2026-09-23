@@ -4,19 +4,19 @@ I watched the darkness smear my vision as I closed my eyes. The harsh whistling 
 
 I opened my eyes to see a most beautiful view, a half full glass of amber whiskey. I had landed in my leather arm chair, friends surrounding me, celebrating our survival. The whiskey was warmer than it should have been, and I drank it anyway. My leather chair held me the way it always did, worn soft in the shape of every night I'd spent in it, and for a while that was enough.
 
-"To the men who didn't die," Anderson said, raising his glass so high it nearly caught the lamp. His face was already red from something other than drink. "Second time this year, if we're counting."
+"To the men who can not die," Anderson said, raising his glass so high it nearly caught the lamp. His face was already red from something other than drink. "Second time this year, if we're counting."
 
 "We're not counting," Cristoph said. "We agreed we weren't counting."
 
 "You agreed. I'm counting." Anderson laughed at his own joke before anyone else could.
 
-Beorme hadn't sat down. He orbited the room in a slow drift, touching the backs of chairs, the edge of the bookshelf, his own collarbone, like he was checking that the furniture was still where he'd left it. "Whose whiskey is this," he asked, of no one.
+Beorme hadn't sat down. He orbited the room in a slow drift, touching the backs of chairs, the edge of the bookshelf, his own collarbone, like he was checking that the furniture was still where he'd left it. "Whose whiskey is this," he asked, "It's shit".
 
 "Mine," I said. "Sit down."
 
 "I am sitting down." He was not.
 
-Daneder had his boots up on the table and his eyes half shut, the particular ease of a man who had already decided the night owed him nothing more. "You're all being morbid," he said. "It's a celebration."
+Daneder had his boots up on the table and his eyes half shut, the particular ease of a man who had already decided the night owed him nothing more. "You're all being morbid," he said. "It's a celebration." he gestured his arms in a round of grandeur as if to grasp for someone not there.
 
 I meant to say something back. I don't know what. I blinked instead, the way you blink when smoke gets in your eyes, and when I opened them the room was only a room — the chair, the lamp, the glass sweating a ring into the leather arm — and my friends were not gone so much as they had simply stopped being there to leave, the way a word stops meaning anything if you say it enough times. I did not go looking for them. Some part of me understood, the way you understand things in dreams without being told, that they were a different night than the one I was standing in now.
 
