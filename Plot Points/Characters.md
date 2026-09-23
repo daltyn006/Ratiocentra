@@ -113,7 +113,6 @@
 
 **Dialogue Patterns**
 - **Speech Patterns:** Sharp, direct, persecuting
-- **Idioms and Catchphrases:** "Think of what's good"
 - **Body Language:** Flirtatious, sly, manipulative || seductive
 
 **World Interaction**
@@ -201,7 +200,7 @@
 
 **Dialogue Patterns**
 - **Speech Patterns:** Boasting, booming voice, hearty and tonal chest
-- **Idioms and Catchphrases:** "He's standing behind me isn't he"
+- **Idioms and Catchphrases:** "He's right behind me isn't he"
 - **Body Language:** Loose but upright posture, flowing motions, when anxious he hits his hands together
 
 **World Interaction**
