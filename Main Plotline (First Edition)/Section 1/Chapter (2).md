@@ -24,4 +24,4 @@ It was an ordinary night, which was somehow worse to remember than the celebrati
 
 thump- thump- thump-
 
-I watch and am watched. I watch and am watched. I watch —
+I watch and am watched. I watch and am watched. I watch — I was trapped.
