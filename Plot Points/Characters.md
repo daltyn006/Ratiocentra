@@ -86,7 +86,7 @@
 
 ## Manda Eeven
 
-- **Name:** Mandaline Eeven
+- **Name:** Manadaline Eeven
 - **Soul:** No
 - **Physical Appearance:** 4'11", ~150lbs, 25-25 years old, Female, small and slightly chubby in a cute way, somewhat healthy alcoholic, one year older than Grant
 - **Nationality/Culture:** Caucasian-Asian
@@ -217,7 +217,7 @@
 
 ## Beorme Vodkin
 
-- **Age and Gender:** 16 -> 18 yo Male
+- **Age and Gender:** late 17yo Male
 - **Soul:** No
 - **Physical Appearance:** 6'3", 150lbs, black hair, green eyes, kept and clean, average looking face, ugly forehead
 - **Nationality/Culture:** American
