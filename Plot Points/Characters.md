@@ -47,7 +47,7 @@
 - **Soul:** No
 - **Physical Appearance:** 6', ~200lbs,  short brown half-sweep hairstyle, brown eyes, square face, skinny body, unkempt
 - **Nationality/Culture:** Eastern-Caucasian
-- **Occupation/Profession:** Overall Failure, political protestor. given the oprotunity to 
+- **Occupation/Profession:** Overall Failure, political protestor. given the opprotunity to be an artist
 
 - **Traits:** slowly dissolves into Narcissistic, pessimistic, satirical, ironical, internally angry, externally a madman
 - **Motivations:** Love interest, ego, and stubbornness
