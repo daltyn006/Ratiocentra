@@ -93,4 +93,7 @@ How this came to be:
         things without "souls" were used as well as possible, human or non-human was just meat. plant life was also a major consumption, since human-modified
         foods presented no souls, but wild nature showed soulful. humanity had been able to communicate with trees as well, of which decided to stay where they were 
         trees also sacrificed themselves and the life around them to stop forest fires and horrible things from happening to the life around them and for our benefits
+
+
+## NEXT CHAPTER MAKE GRANT LOOK FOR A WEDDING RING
         
