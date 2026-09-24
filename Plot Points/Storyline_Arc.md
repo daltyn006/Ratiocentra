@@ -24,7 +24,7 @@
   - Manda really hates the system 
   - Grant takes Manda to the Coma test
   - changes to Manda's perspective 
-### Manda's Dream
+### Manada's Dream
  - rooms
  - medical samples 
  - condemns baby to no be doctor
@@ -35,7 +35,7 @@
      - Phase 1.md 
      - Phase 2.md
      - Phase 3.md
-###
+### More Manada!?
 
 
 
