@@ -1,0 +1,1 @@
+Wedding rings were increasingly becoming obsolete. Grant hadn't had any luck finding the ones he saw in the old films. He thought that it would be a nice gesture, with the antique camera she used of the old days. Maybe after she was done with the test they could appeal the state for official titles. 
