@@ -4,9 +4,7 @@ Leaders are practically trying to take the most rational of humanity and selecti
 
 been going on for centuries, people used alcohol, acid, and anything they could legal/illigal to pass the government exam that would kill them and use them as food if they did not show consciousness within a coma. 
 
-main characters father isn't actually rational, the nurse had a crush on him a few days after he went under and faked his consciousness in the system to pass him. 
-
-the nurse was killed immediately after they found out she was having sex with the man in the coma after she got pregnant unexpectedly (abortion || double homicide).
+main characters father isn't actually rational, the nurse had a crush on him a few days after he went under and faked his consciousness in the system to pass him?
 
 his mother got in by a fluke where her parents were so rich they paid off the government to let her live, but since she was not "rational" they slowly distanced themselves from her and soon forgot about her. 
 
@@ -14,11 +12,9 @@ main characters mother and father got married by the state because those who pas
 
 Technologically and scientifically advanced society where everything is back to being formal such as would be the 1920's but takes place in the future. social deviancy is allowed only after rationality is proven. before deviancy gets you put in prison, all protests and changes are denied and everything is put up to an old constitutional republic vote over democracy. 
 
-prisons give a chance of leaving upon proving your rationality with a test once every 3 years after 25. Before 25 children are not tested as child murder is still wrong.
+prisons give a chance of leaving upon proving your rationality with a test once every 3 years after 25. Before 25 children are not tested as child murder is not wrong.
 
 main character wants change even though the system that "rationalists" have created is the most successful and happiest living standards with very little crime or wrongdoing since the coma testing has a 0.01% failure rate.
-
-people are more sexually liberated and are always naked in this society as people are able to control themselves. sex between people under 18 and over 18 is strictly prohibited (of course)
 
 rational animals are also kept along with rational humans, animals have a different process that vets found a while ago where irrational animals are killed for food (vast majority) but rational animals are treated well and reproduce plenty (for humans and with beasts)
 
@@ -97,4 +93,7 @@ How this came to be:
         things without "souls" were used as well as possible, human or non-human was just meat. plant life was also a major consumption, since human-modified
         foods presented no souls, but wild nature showed soulful. humanity had been able to communicate with trees as well, of which decided to stay where they were 
         trees also sacrificed themselves and the life around them to stop forest fires and horrible things from happening to the life around them and for our benefits
+
+
+## NEXT CHAPTER MAKE GRANT LOOK FOR A WEDDING RING
         
