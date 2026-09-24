@@ -25,3 +25,9 @@
   - Grant takes Manda to the Coma test
   - changes to Manda's perspective 
 ###Manda's Dream
+ - rooms
+ - medical samples 
+ - condemns baby to no be doctor
+ # Actual Dream
+     -
+     -
