@@ -4,7 +4,7 @@ Leaders are practically trying to take the most rational of humanity and selecti
 
 been going on for centuries, people used alcohol, acid, and anything they could legal/illigal to pass the government exam that would kill them and use them as food if they did not show consciousness within a coma. 
 
-main characters father isn't actually rational, the nurse had a crush on him a few days after he went under and faked his consciousness in the system to pass him. 
+main characters father isn't actually rational, the nurse had a crush on him a few days after he went under and faked his consciousness in the system to pass him?
 
 his mother got in by a fluke where her parents were so rich they paid off the government to let her live, but since she was not "rational" they slowly distanced themselves from her and soon forgot about her. 
 
