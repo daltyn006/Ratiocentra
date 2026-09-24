@@ -6,8 +6,6 @@ been going on for centuries, people used alcohol, acid, and anything they could 
 
 main characters father isn't actually rational, the nurse had a crush on him a few days after he went under and faked his consciousness in the system to pass him. 
 
-the nurse was killed immediately after they found out she was having sex with the man in the coma after she got pregnant unexpectedly (abortion || double homicide).
-
 his mother got in by a fluke where her parents were so rich they paid off the government to let her live, but since she was not "rational" they slowly distanced themselves from her and soon forgot about her. 
 
 main characters mother and father got married by the state because those who pass the exam are ranked in consciousness but the two of them got no scores; and while they love eachother no child of theirs lived past 25.
