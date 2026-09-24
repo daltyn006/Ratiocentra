@@ -30,6 +30,20 @@
  - condemns baby to no be doctor
  - alone with random men with no control
  - alone with men with no control and unconscious with baby
+ - Sonic
  # Actual Dream
-     -
-     -
+     - Phase 1.md 
+     - Phase 2.md
+     - Phase 3.md
+
+
+
+
+
+
+
+
+
+
+
+
