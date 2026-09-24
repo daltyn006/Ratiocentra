@@ -28,7 +28,8 @@
  - rooms
  - medical samples 
  - condemns baby to no be doctor
- - 
+ - alone with random men with no control
+ - alone with men with no control and unconscious with baby
  # Actual Dream
      -
      -
