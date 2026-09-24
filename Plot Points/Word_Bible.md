@@ -14,11 +14,9 @@ main characters mother and father got married by the state because those who pas
 
 Technologically and scientifically advanced society where everything is back to being formal such as would be the 1920's but takes place in the future. social deviancy is allowed only after rationality is proven. before deviancy gets you put in prison, all protests and changes are denied and everything is put up to an old constitutional republic vote over democracy. 
 
-prisons give a chance of leaving upon proving your rationality with a test once every 3 years after 25. Before 25 children are not tested as child murder is still wrong.
+prisons give a chance of leaving upon proving your rationality with a test once every 3 years after 25. Before 25 children are not tested as child murder is not wrong.
 
 main character wants change even though the system that "rationalists" have created is the most successful and happiest living standards with very little crime or wrongdoing since the coma testing has a 0.01% failure rate.
-
-people are more sexually liberated and are always naked in this society as people are able to control themselves. sex between people under 18 and over 18 is strictly prohibited (of course)
 
 rational animals are also kept along with rational humans, animals have a different process that vets found a while ago where irrational animals are killed for food (vast majority) but rational animals are treated well and reproduce plenty (for humans and with beasts)
 
