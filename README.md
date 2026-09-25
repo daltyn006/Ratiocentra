@@ -43,10 +43,10 @@ Now the world reacts to the actions of the meek. Humanity has figured out what m
   - **Chapter 17:** The Tortured (Universal Clock)
   - **Chapter 18:** The Juggalo (The Great Divorce)
   - **Chapter 19:** The Time Bomb (My Old School)
-  - **Chapter 20:** Trapped and Taken (What is to Forgive)
+  - **Chapter 20:** The Misanthrope (New Character?)
 - ### Section 5:
-  - **Chapter 21:** Visionary (Back to Stars, full circle) (Sister?)
-  - **Chapter 22:** Consciousness in the Void (Outlook) (Sister?)
+  - **Chapter 21:** Visionary (Back to Stars, full circle) 
+  - **Chapter 22:** Consciousness in the Void (Outlook) 
   - **Chapter 23:** Heat Rising (The Expert) 
   - **Chapter 24:** The Fortress (New Addition)
   - **Chapter 25:** Finality (Outcomes for the entire group)
