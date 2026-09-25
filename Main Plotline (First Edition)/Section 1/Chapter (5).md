@@ -1,6 +1,6 @@
 # Loss
 
-Wedding rings were increasingly becoming obsolete. Grant had naught any luck finding the ones he saw in the old films. He thought that it would be a nice gesture, with the antique camera she used of the old days. Maybe after she was done with the test they could appeal the state for official titles. He thought to not bring Anderson into the delicate craft of jewelry. His smithing skills wore the prowess of the identical perfectly built Damascus blades he supplied to local restaurants and residents befitting their craftsmanship. A ring was much below his level and a waste of his time, and still, Grant was tantalized to the thought of the uniqueness of his craft to give to bond with Manada soon to come. She would be released a week from now back to him, and Grant was readily prepared to see her once more before his sentence on his upcoming birthday. He would very much enjoy one last hurrah with her before he goes to his imprisonment. Although she was gone, he kept her in his heart each waking moment- choosing to accessorize a singular photo of her rolled and tucked behind his ear. A ring would be much more convenient, and he liked the implications.
+Wedding rings were increasingly becoming obsolete. Grant had naught any luck finding the ones he saw in the old films. He thought that it would be a nice gesture, with the antique camera she used of the old days. Maybe after she was done with the test they could appeal the state for official titles, or just claim them on their own. He thought to not bring Anderson into the delicate craft of jewelry. His smithing skills wore the prowess of the identical perfectly built Damascus blades he supplied to local restaurants and residents befitting their craftsmanship. A ring was much below his level and a waste of his time, and still, Grant was tantalized to the thought of the uniqueness of his craft to gift Manada soon to come. She would be released only 3 months from now back to him, and Grant was readily prepared to see her once more before his required sentence on his upcoming birthday. He would very much enjoy one last hurrah with her before he goes to his imprisonment. Although she was gone, he kept her in his heart each waking moment- choosing to accessorize a singular photo of her rolled and tucked behind his ear. A ring would be much more convenient, and he liked the implications.
 
 Grant found Anderson and Christoph to be the best members of the group, not leaders per-se, they always had a purpose to accomplish and sought to complete it happily. Even when in the face of adversity they never lost their cheeriness. In fact, with Anderson it only made him funnier. The gentle hem of the streetlights danced around the vehicle as he flew down the rural roads. Cities like Hasseokea and Beskyddaren were constantly too populated- and the independence of the hidden home on the edge of little known Yhajen where the group stayed in their spare moments was a good central point for the two to meet. While traversing the globe was made much faster; it was all so ridiculous that the maximum time spent in a car was two entire hours. Grant expected that by now it would be down to a half hour, but vehicles could only move so fast on hydro-nuclear. Anderson had been walking up to the second floor patio to enter in the glass sliding door when Grant arrived, he wasn't late after all. It had been a time since the two had been able to talk separate from the group.
 
@@ -14,9 +14,13 @@ Grant found Anderson and Christoph to be the best members of the group, not lead
 
 Anderson just watched him with more amusement than concern. "Woah. Didn't know you were an alcoholic." "What... cough... what did you put in this?" Grant choked out. "Absolute alcohol with a splash of orange juice," Anderson said smoothly, taking a heavy swig from his own glass without so much as a flinch. "Not like I'm driving home." Grant wiped his eyes, taking a ragged breath. "Look... don't tell Deneder just yet. But I think she likes me. And I like her." The tension broke, and as the night wore on, the two drowned their worries and boredom in all sorts of talk. But no matter where the conversation drifted, Grant always found a way to circle back to Manada.
 
+Grant stood near the doorway, eyeing the rows of protective jackets, aprons, and thick gloves lining the wall like silent warnings."It's going to be hell by the anvil without gear," Anderson noted, wiping sweat from his forehead. "You're making a ring for her, right? Freehand forged, I don't have any mold shortcuts. That means working inches from open heat." "I told you, I'm not wearing it," Grant said as he brought his hands up together to squeeze the webbing between his thumb and index fingers. Anderson held up his newly gloved hands, huffing a laugh. "Your call. Just trying to keep you from burning those fingers off before you can even give it to her."
 
+He turned to the main control panel and threw the breakers. Pneumatic valves clunked as the air filtration kicked in, diverting toxic fumes through the exhaust lines and pressurizing the room with fresh oxygen mix. The air grew dense, but the heat didn't drop a degree. Anderson grabbed a piece of raw stock and turned to the hearth. "Alright. Heat's rising. If you want this band shaped smooth before the metal degrades, we need to move now." They worked. They worked until Grant's hands bore callouses that condemned the rings from fitting his hands, soon having learned he did not know the size of the ring to build her. Nothing could come easy, Anderson's necklace was not befitting for a lady, the thick chains of pure iron were proper of a bull. The determination between the two was palpable, Anderson for the pure love of the craft, and Grant driven by his passion was no longer even flinching to the hot sparks that flung off the gentle rapping taps of the hammer he sent through the annulets as they worked together to link them as one. 
 
+The camaraderie found in this project made neither want it to end. One prototype turned to two, three to four, and so on until their combined craftsmanship brought them from scrap iron to titanium, and titanium to iridium. the final product stunned them both, and then stunned them again when they made another identical one for Grant. The end of their escapade brought time to punch them in the kidneys; the capsule of the workshop allowed months to pass like clouds in the sky racing toward destinations far in the distance. Grant watched them fly, willing the high winds to push them faster, to tear through the months until the day she was finally released back into his arms. But as the forge fires dimmed, the horizon finally shifted; the long night was burning away, and the morning sun would bring her freedom.
 
+The center was identical to how he had left it, excluding the woman at the front desk. Grant, in his eagerness, stood in the lobby awaiting her return. A woman phased through the wall, returning to her station at the front desk. It was the same one he had seen one year prior, he knew since she wore the same exasperating smile.
 
 
 
@@ -96,20 +100,7 @@ Anderson just watched him with more amusement than concern. "Woah. Didn't know y
 
 
 
-
-
-
-
-
-
-
-
-
-
-
-
-
-[he bursts into center 3 to see manada after he learns she is dead and tries to fling himself into the conveyer but gets stopped by magnets.]
+//[he bursts into center 3 to see manada after he learns she is dead and tries to fling himself into the conveyer but gets stopped by magnets.]
 
 
 
