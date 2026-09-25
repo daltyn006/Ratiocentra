@@ -20,90 +20,21 @@ He turned to the main control panel and threw the breakers. Pneumatic valves clu
 
 The camaraderie found in this project made neither want it to end. One prototype turned to two, three to four, and so on until their combined craftsmanship brought them from scrap iron to titanium, and titanium to iridium. the final product stunned them both, and then stunned them again when they made another identical one for Grant. The end of their escapade brought time to punch them in the kidneys; the capsule of the workshop allowed months to pass like clouds in the sky racing toward destinations far in the distance. Grant watched them fly, willing the high winds to push them faster, to tear through the months until the day she was finally released back into his arms. But as the forge fires dimmed, the horizon finally shifted; the long night was burning away, and the morning sun would bring her freedom.
 
-The center was identical to how he had left it, excluding the woman at the front desk. Grant, in his eagerness, stood in the lobby awaiting her return. A woman phased through the wall, returning to her station at the front desk. It was the same one he had seen one year prior, he knew since she wore the same exasperating smile.
+The center was identical to how he had left it, excluding the woman at the front desk. Grant, in his eagerness, stood in the lobby awaiting her return. A woman phased through the wall, returning to her station at the front desk. It was the same one he had seen one year prior, he knew since she wore the same exasperating smile. Grant waited by the counter, his thumb restlessly tracing the smooth, cool polished ridges of the iridium band in his palm. The morning sun was just breaking, and his pulse raced with a desperate, electric hope. The same laminated badge. The same high, squeaky pitch designed to soothe children. "Good morning! How can I help you today?" Grant leaned over the desk, his voice trembling despite his best efforts. "Manada. I'm here to see Manada. Her sentence—her test—it's over today."
 
+The lady's smile never wavered. She tapped her tablet with a manicured finger, humming a mindless little tune under her breath. "Oh, sweetie," she mindlessly cooed, looking up with that wide, vacant grin. "Manada failed." Grant's smile faltered, his hand freezing in his pocket. "What do you mean?" "She was processed out!" the woman said brightly, as if announcing a holiday promotion. "She showed really appalling, base biological attachments during her evaluations. She was extremely risky to release. So her file was liquidated last night."
 
+The words hit Grant like a physical blow, driving the wind entirely out of him. The lady's eyes bore into him like oil rigs breaking through his dirt like skin and pulling out happiness, hope, and love. The room began to spin, the edges of his vision blurring into a blinding, infinite static. He reached out to hold onto the marble counter, but his hands felt entirely numb, devoid of touch. Liquidated. Processed out. The necklace dropped to the floor. 
 
+"You're lying," Grant whispered. It wasn't an argument; it was a desperate, hollow plea to a universe that had just stopped existing. "She's coming out." "Now, don't be difficult," she chirped, her voice taking on a light, patronizing scold. "The system is always correct. If you'd like to leave a feedback entry, you can use the terminal in the corner. Have a wonderful day!" "Where is her body?" A faint scream rose from below a large elevated rectangle that protruded from the floor- vanishing as soon as it came.
 
+ A quiet, violent shift occurred inside his mind—like a massive glass structure shattering in dead silence. The noise of the lobby faded out completely, replaced by a low, rushing wind that seemed to blow from somewhere deep inside his own chest. The light in the room didn't dim; it simply lost its meaning.  The time it took- any second spent sober was too much, was turmoil. Grant was more aware than ever there were people watching him in the woods, there were people everywhere- always glaring, staring, surveying his every moment. The hangout spot meant nothing anymore, nothing meant anything anymore, but he wasn't here for nothing. Grant opened the cupboard which Beorme had left open with an urgency that broke it off its hinges, scattering the needles, packets, and pills over the floor beneath his feet. No time was spared, no second thoughts were made, he had to see her again- even if it was only in his mind.
 
+He didn't see her though, his father had appeared in his anguish to comfort him. Grant realized then he was at his home, and the words fell before him before he could speak. "They threw her away," Grant told Anderson, his head resting heavily against the cool glass of a sliding door. "They threw her away," Grant muttered to Beorme, watching the man prep them both another syringe in the corner of a dim, red-lit room. "They threw her away, Christoph," Grant sobbed over empty bottles. In some moment between friends, Grant had a realization he had to go back. Part-way through his pilgrimage to the center he finally saw Manda beckoning him into the forest beside the road. In his state Grant was in no condition to follow, and still he did- he followed her body as she swayed in and out of reality ahead of him, her pale body the same as it always had been. The forest cleared into a grassy outcrop where she laid down in the grassy plain. If Grant could have ran he would have, but he made it to her nonetheless. No words were spoken between the two, only understanding. He could sense she was there, everything but her voice, and he knew the shadows lining the trees had always been there. Just like he knew he could hold her one last time as they slept in the forest, her smooth skin comforting him one final time. Before passing into dreamless sleep, he opened his eyes to memorize her the best he could. 
 
+She was gone. All that remained were thousands of dark figures, figures that stood over him, pressing together as a wall that gave him no room to be. figures forced to climb partially up the trees, watching and waiting, figures sitting on the branches. figures that surrounded him in totality and eyed his pathetic display in blatant apathy. They had no faces, but Grant knew they saw. They always saw. When he awoke, he knew what he had to do. He had always known in part, but did not want to accept it. He was possessed by being completely sober, and returned to the vehicle. 
 
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-//[he bursts into center 3 to see manada after he learns she is dead and tries to fling himself into the conveyer but gets stopped by magnets.]
-
-
-
+The attendant watched as Grant hustled with a purpose over to the rectangular box that laughed and mocked him for daring to return to this place. If he could have cried he would have, but the tears had all but left him. The sharp jagged metal torrented below to his love. Oblivious to his decision, the woman at the front let him know, "We have some things in the lost and found for you." Grant accepted the iridium necklaces back, placing them around his neck and swearing he would give the other to Manada once he found her. He would return to her, alive or dead. And he jumped.
 
 
 
