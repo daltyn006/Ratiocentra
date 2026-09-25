@@ -52,7 +52,7 @@ Now the world reacts to the actions of the meek. Humanity has figured out what m
   - **Chapter 25:** What Lies Beyond (Outcomes for the entire group)
 
 ## ⚠️ Content Warnings
-**This work contains graphic scenes of body horror, non-consensual medical procedures, severe physical trauma, child loss/infant endangerment, genocide, explicit descriptions of grief, substance abuse, and suicide. Intended strictly for adult readers.**
+**This work contains graphic scenes of body horror, non-consensual medical procedures, severe physical trauma, child loss/infanticide endangerment, genocide, explicit descriptions of grief, substance abuse, and suicide. Intended strictly for adult readers.**
 
 ---
 
