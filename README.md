@@ -15,6 +15,7 @@ Now the world reacts to the actions of the meek. Humanity has figured out what m
 ## 📑 Read Online
 
 **Status:** Work in Progress
+
 **Updates:** Sparse and few between
 
 ### Table of Contents
@@ -22,8 +23,7 @@ Now the world reacts to the actions of the meek. Humanity has figured out what m
     * to be set
 
 ## ⚠️ Content Warnings
-*(Optional: Remove if not needed)*
-* Explicit language, violence, dark fantasy themes, unusual contents.
+* This work contains graphic scenes of body horror, non-consensual medical procedures, severe physical trauma, child loss/infant endangerment, genocide, explicit descriptions of grief, substance abuse, and suicide. Intended strictly for adult readers.
 
 ---
 
