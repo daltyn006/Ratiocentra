@@ -31,7 +31,7 @@ Now the world reacts to the actions of the meek. Humanity has figured out what m
       - **Chapter 7:** Revival
       - **Chapter 8:** Scattered plans
       - **Chapter 9:** Lost and Found
-      - **Chapter 10:** Archives
+      - **Chapter 10:** Archives and Data Centers
     - ### Section 3:
       - **Chapter 11:** Exposure
       - **Chapter 12:** Fury and Hatred (Sister??)
