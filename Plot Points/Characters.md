@@ -51,9 +51,9 @@
 **Personality**
 - **Traits:** Slowly dissolves into Narcissistic, pessimistic, satirical, ironical, internally angry, externally a madman
 - **Motivations:** Love interest, ego, and stubbornness
-- **Conflict:** Rationality, Status Quo
+- **Conflict:** Rationality, Status Quo, Realtiy
 - **Relationships:** Has friends and enemies, knows everyone in the story
-- **Quirks:** Perceives himself as always being watched and never alone
+- **Quirks:** Perceives himself as always being watched and never alone, hates wearing anything over his skin
 
 **Background**
 - **Family:** Born of Mr. Pewdershmitt ("Father") and Mrs. Pewdershmitt ("Mom")
@@ -84,7 +84,7 @@
 
 ---
 
-## Manda Eeven
+## Manada Eeven
 
 - **Name:** Manadaline Eeven
 - **Soul:** No
