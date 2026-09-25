@@ -27,7 +27,7 @@ Now the world reacts to the actions of the meek. Humanity has figured out what m
   - **Chapter 4:** Vixen
   - **Chapter 5:** Iridium Necklaces
 - ### Section 2 - Redemption:
-  - **Chapter 6:** Lindesay (in progress)
+  - **Chapter 6:** The Beauty (In Progress)
   - **Chapter 7:** Revival
   - **Chapter 8:** Scattered plans
   - **Chapter 9:** Lost and Found
