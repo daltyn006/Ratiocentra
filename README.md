@@ -16,7 +16,7 @@ Now the world reacts to the actions of the meek. Humanity has figured out what m
 
 **Status:** Work in Progress
 
-**Updates:** Sparse and few between
+**Updates:** Much more than expected
 
 ### Table of Contents
 ---
