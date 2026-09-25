@@ -20,7 +20,12 @@ Now the world reacts to the actions of the meek. Humanity has figured out what m
 
 ### Table of Contents
 ---
-    * to be set
+    - **Chapter 1:** Beskydarren
+    - **Chapter 2:** Bodies in Motion
+    - **Chapter 3:** Hasseoka
+    - **Chapter 4:** The Vixen
+    - **Chapter 5:** Iridium Necklaces
+      
 
 ## ⚠️ Content Warnings
 * This work contains graphic scenes of body horror, non-consensual medical procedures, severe physical trauma, child loss/infant endangerment, genocide, explicit descriptions of grief, substance abuse, and suicide. Intended strictly for adult readers.
