@@ -22,7 +22,7 @@ Now the world reacts to the actions of the meek. Humanity has figured out what m
 ---
 - ### Section 1 - Utopia: 
   - **Chapter 1:** Beskydarren
-  - **Chapter 2:** Bodies in Downward Motion
+  - **Chapter 2:** A Body in Downward Motion
   - **Chapter 3:** Hasseoka
   - **Chapter 4:** The Vixen
   - **Chapter 5:** Iridium Necklaces
