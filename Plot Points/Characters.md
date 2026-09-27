@@ -10,7 +10,7 @@
 
 ---
 
-## Grant Grenzer
+## Grant Grenzer [The great one, guard of the boundary ]
 - **Age and Gender:** 23 -> 25 yo Male
 - **Soul Status:** Confirmed Soul (Severely Fractured)
 - **Physical Appearance:** 6'0", ~190 lbs, short brown half-sweep hairstyle, brown eyes, square jawline, ragged, unkempt, scabby/scarred skin from chute falls, visibly starving by Section 5.
@@ -24,15 +24,15 @@
   - *Section 1:* Suicidal 10m leap down the chute out of pure grief for Manada.
   - *Section 2:* Lands on Lindesay’s ascending platform; recovers; uncovers the Mall-School paper archives and discovers he has an orphan twin sibling.
   - *Section 3:* Leads the group into the wild grid; starves in the forest; refuses to conform despite his friends bringing him to a restaurant.
-  - *Section 4:* Subterranean test reveals Manada carried his child, which was clinically removed due to the parents' irrational friction. He rejects the test's offer of peaceful release, doubling down on his obsession.
-  - *Section 5:* Uncovers the pre-system Bible (Book of Job) in Chapter 24; undergoes a final jagged chute fall; walks into the lake in Chapter 25 with Manada's phantom.
+  - *Section 4:* Subterranean test reveals Lindesay carried his child, which was clinically removed due to the parents' irrational friction. He rejects the test's offer of peaceful release, doubling down on his obsession.
+  - *Section 5:* Uncovers the pre-system Bible (Book of Job) in Chapter 24; undergoes a final jagged chute fall; walks into the lake in Chapter 25 with Lindesay's phantom.
 
-## Father Grenzer
+## Father Grenzer [ Guard of the boundary ] 
 
 
 ---
 
-##  Lindesay 
+##  Lindesay [ Dry land among marshes ] 
 - **Soul Status:** Deceased (Extracted/Eased by System); manifests as a Phantom Projection in Grant's mind.
 - **Physical Appearance:** Irish-Caucasian, 4'11", ~140 lbs, 24 years old (at death),  chubby in a soft, genuine way, expressive emerald eyes, slightly messy dark brunette hair.
 - **Role & Background:** Grant's lost partner. Her intense bond with Grant was formed in extreme isolation. Died after a system intervention/test during her pregnancy.
@@ -47,7 +47,7 @@
 
 ---
 
-## Manada
+## Manada [ Bend in the water ]
 - **Age and Gender:** 25 -> 26 yo Female
 - **Soul Status:** Confirmed Soul (Grounded & Whole)
 - **Physical Appearance:** German-Caucasian, 4'9", 140 lbs, dark amber hair, shiny diamond eyes, clean, well-kept, cutesy yet athletic build.
@@ -62,8 +62,8 @@
 
 ---
 
-## Anderson 
-- **Age and Gender:** 23 -> 25 yo Male (Anderson)
+## Anderson [ Manly ] 
+- **Age and Gender:** 23 -> 25 yo Male)
 - **Soul Status:** Confirmed Souls (Content System Citizens)
 - **Physical Appearance:** 
   - *Anderson:* 5'5", 230 lbs, short red hair, warm eyes, chubby, jovial, cheerful double chin, strong hands.
