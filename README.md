@@ -6,18 +6,25 @@
 
 ## 📖 Synopsis
 
-Grant Pewdershmitt lives in a perfect utopia with his father. The few people left are able to live out their lives with little stress, conflict, or adversity due to a set of customs and traditions put in place centuries ago. Billions have died and will continue to die for the cause, but it is alright because they have no souls. That is the only way to redeem society in the eyes of The Elders. Younger generations are given the time to reach their root capacities, it is up to the self to decide if survival is at hand.
+Grant Grenzer lives in a perfect utopia with his father. The few people left are able to live out their lives with little stress, conflict, or adversity due to a set of customs and traditions put in place centuries ago. Billions have died and will continue to die in order to create a utopia, but it is alright because they have no souls. Humans have figured a fix for earthly problems. Younger generations are given the time to reach their root capacities, it is up to the self to decide if survival is at hand.
 
-With memories of reality and fiction driving him to anguish in what would be perfection, it soon becomes impossible for him to conform on the day of his becoming. How many shall suffer before pain becomes God, to embellish the walls with the shortcomings and failures of what has become of truth and justice. Love, reason, and the incarnate are not meant to co-exist. The greater good sometimes requires an evil.
+With memories of reality and fiction driving him in a unique path in what would be earthly perfection, it soon becomes impossible for him to conform on the day of his becoming. How many shall suffer for retribution to save all over some, to embellish the walls with the shortcomings and failures of what has become of truth and justice. Love, reason, and the incarnate are not meant to co-exist. The greater good sometimes requires an evil. And that evil can only be found in the self.
 
-Now the world reacts to the actions of the meek. Humanity has figured out what must be sacrificed to develop. Now that it has, why should it cause its own demise?
+Now the immutable world reacts to the actions of the meek and feeble. Humanity has figured out what must be sacrificed to develop. Now that it has, why should it cause its own demise?
+
+---
+
+## ⚠️ Content Warnings
+**This work contains graphic scenes of body horror, non-consensual medical procedures, severe physical trauma, child loss/infant endangerment, genocide, explicit descriptions of grief, substance abuse, and suicide. Intended strictly for adult readers.**
+
+---
 
 ## 📑 Read Online
 
 **Status:** Work in Progress
 
 **Updates:** Much more than expected
-
+---
 ### Table of Contents
 ---
 - ### Section 1 - Utopia: 
@@ -50,9 +57,6 @@ Now the world reacts to the actions of the meek. Humanity has figured out what m
   - **Chapter 23:** Heat Rising (The Expert) 
   - **Chapter 24:** The Fortress (New Addition)
   - **Chapter 25:** What Lies Beyond (Outcomes for the entire group)
-
-## ⚠️ Content Warnings
-**This work contains graphic scenes of body horror, non-consensual medical procedures, severe physical trauma, child loss/infant endangerment, genocide, explicit descriptions of grief, substance abuse, and suicide. Intended strictly for adult readers.**
 
 ---
 
