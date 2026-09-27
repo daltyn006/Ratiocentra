@@ -18,9 +18,9 @@
    - *Description:* The unmonitored sectors beyond the automated urban perimeter. Overgrown pre-system ruins, dense forests, and forgotten infrastructure.
    - *Role:* Where Grant, the husbands, wives, and Deneder travel in Section 3. Serves as the backdrop for Grant's starvation sequence and the group's encounter with Grant's lost sibling.
 
----
+---.
 
-### **Subterranean Infrastructure & Testing Chambers**
+### **Subterran Infrastructure & Testing Chambers**
 1. **The Chutes & Transit Shafts:**
    - *Description:* Industrial, vertical shaft networks connecting the surface grid to subterranean testing facilities.
    - *Physics & Mechanics:* Feature angled chutes, magnetic/pneumatic decelerators, and conveyor platforms. A drop down a chute spans ~10 meters before hitting ascending platform mechanisms.
