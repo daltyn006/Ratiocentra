@@ -15,7 +15,7 @@
    - *Description:* The unmonitored sectors beyond the automated urban perimeter. monitored forests, old growth, and forgotten infrastructure.
    - *Role:* Where Grant, Christoph and Anderson travel. Serves as the backdrop for Grant's starvation sequence and the group's encounter with Grant's lost sibling.
 
----.
+---
 
 ### **Subterran Infrastructure & Testing Chambers**
 1. **The Chutes & Transit Shafts:**
