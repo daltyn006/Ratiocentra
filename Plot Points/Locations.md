@@ -1,10 +1,3 @@
-1. Beskyddaren - Artistic town with a huge restaurant in the center
-2. Rural Home - Beskyddaren - Dream
-3. Hasseoka -> Rural Hasseoka -> Industrial Hasseoka
-4. Industrial Hasseoka
-5. Rural Hasseoka -> Beskyddaren
-# World Locations & Spatial Mechanics
-
 ### **Surface Society & Settlements**
 1. **Beskydarren:**
    - *Description:* A quiet, aesthetically pristine surface town built around automated comfort, automated dining, and effortless living.
@@ -14,9 +7,11 @@
    - *Description:* A multi-tiered sector housing educational facilities, transit nodes, and automated utility centers.
    - *The Mall-School Complex:* An obsolete 20th/21st-century style mall converted into a school. Contains the forgotten paper archive library in a side closet where Grant uncovers pre-system history and his sibling's birth record.
 
-3. **The Wild Grid / Wilderness Buffer:**
-   - *Description:* The unmonitored sectors beyond the automated urban perimeter. Overgrown pre-system ruins, dense forests, and forgotten infrastructure.
-   - *Role:* Where Grant, the husbands, wives, and Deneder travel in Section 3. Serves as the backdrop for Grant's starvation sequence and the group's encounter with Grant's lost sibling.
+3. 
+
+4. **The Wild Grid / Wilderness Buffer:**
+   - *Description:* The unmonitored sectors beyond the automated urban perimeter. monitored forests, old growth, and forgotten infrastructure.
+   - *Role:* Where Grant, Christoph and Anderson travel. Serves as the backdrop for Grant's starvation sequence and the group's encounter with Grant's lost sibling.
 
 ---.
 
