@@ -163,7 +163,7 @@
 
 ## Beorme [ Rising Scum ] 
 - **Age and Gender:** Late 18 yo Male
-- **Soul Status:** Not 
+- **Soul Status:** No
 - **Physical Appearance:** 6'3", 150 lbs, black hair, green eyes, pale, prominent forehead, hunched posture, scabbed wrists.
 - **Role & Background:** Underground fringe dweller who uses illicit substances to cope with the eerie, artificial perfection of the bliss society.
 - **Personality:**
