@@ -10,7 +10,7 @@
 
 ---
 
-## Grant Pewdershmitt
+## Grant Grenzer
 - **Age and Gender:** 23 -> 25 yo Male
 - **Soul Status:** Confirmed Soul (Severely Fractured)
 - **Physical Appearance:** 6'0", ~190 lbs, short brown half-sweep hairstyle, brown eyes, square jawline, ragged, unkempt, scabby/scarred skin from chute falls, visibly starving by Section 5.
@@ -27,10 +27,12 @@
   - *Section 4:* Subterranean test reveals Manada carried his child, which was clinically removed due to the parents' irrational friction. He rejects the test's offer of peaceful release, doubling down on his obsession.
   - *Section 5:* Uncovers the pre-system Bible (Book of Job) in Chapter 24; undergoes a final jagged chute fall; walks into the lake in Chapter 25 with Manada's phantom.
 
+## Father Grenzer
+
+
 ---
 
-## Manada Eeven
-- **Name:** Manadaline Eeven
+##  Lindesay 
 - **Soul Status:** Deceased (Extracted/Eased by System); manifests as a Phantom Projection in Grant's mind.
 - **Physical Appearance:** 4'11", ~140 lbs, 24 years old (at death), Caucasian-Asian, chubby in a soft, genuine way, expressive dark eyes, slightly messy dark hair.
 - **Role & Background:** Grant's lost partner. Her intense bond with Grant was formed in extreme isolation. Died after a system intervention/test during her pregnancy.
@@ -45,7 +47,7 @@
 
 ---
 
-## Lindesay Iverson
+## Manada
 - **Age and Gender:** 25 -> 26 yo Female
 - **Soul Status:** Confirmed Soul (Grounded & Whole)
 - **Physical Appearance:** 4'9", 140 lbs, dark amber hair, emerald green eyes, clean, well-kept, cutesy yet athletic build.
@@ -60,7 +62,7 @@
 
 ---
 
-## Anderson Hearth & His Wife
+## Anderson 
 - **Age and Gender:** 23 -> 25 yo Male (Anderson); 22 -> 24 yo Female (Wife)
 - **Soul Status:** Confirmed Souls (Content System Citizens)
 - **Physical Appearance:** 
@@ -77,9 +79,14 @@
 
 ---
 
-## Cristoph Umber & His Wife
-- **Age and Gender:** 23 -> 25 yo Male (Cristoph); 22 -> 24 yo Female (Wife)
-- **Soul Status:** Confirmed Souls (Content System Citizens)
+## Eira || Anderson's Wife 
+
+  - **Age and Gender:** 20 -> 22 yo Female
+  -**Soul Status:** Untested (Confirmed)
+---
+## Christoph [ He who carries the Christ ] 
+- **Age and Gender:** 23 -> 25 yo Male
+- **Soul Status:** Confirmed Souls
 - **Physical Appearance:**
   - *Cristoph:* 5'6", 180 lbs, blonde hair, clear blue eyes, trim, athletic ranger build.
   - *His Wife:* Tactile, creative, quiet, enjoys hand-crafting and cooking in a post-scarcity world.
@@ -94,7 +101,12 @@
 
 ---
 
-## Deneder Theurn
+## Gisela || Christoph's wife [ Pledge ]
+ - **Age and Gender:** 20 -> 22 yo Female
+
+---
+
+## Daneder [ dweller of the wasteland ]
 - **Age and Gender:** 25 yo Male
 - **Soul Status:** Confirmed Soul -> Forfeited / Executed by System
 - **Physical Appearance:** 5'7", 145 lbs, slicked blonde hair, sharp hazel eyes, stylishly maintained appearance.
@@ -108,10 +120,10 @@
 
 ---
 
-## Grant's Lost Twin Sibling
-- **Age and Gender:** 24 yo (Male or Female)
+## Besra [ Solitary bird of prey ]  
+- **Age and Gender:** 24->25 yo Female
 - **Soul Status:** Confirmed Soul (Genetically Predisposed to Hyper-Attachment)
-- **Physical Appearance:** Striking facial resemblance to Grant and his father; shares Manada’s soft, expressive eyes and orphan demeanor.
+- **Physical Appearance:** Striking facial resemblance to Grant and his father; shares Manada’s soft, expressive eyes and externally angry demeanor.
 - **Role & Background:** Born days apart from Grant due to a late delivery. Separated at birth after a nurse took advantage of their father while he was asleep in medical care. Raised as an orphan; now lives with a spouse and a 5-year-old child.
 - **Personality:**
   - *Traits:* Deeply affectionate, emotionally fragile, prone to sudden obsessive shifts.
@@ -122,7 +134,7 @@
 
 ---
 
-## Beorme Vodkin
+## Beorme [ Rising Scum ] 
 - **Age and Gender:** Late 17 yo Male
 - **Soul Status:** Non-conforming Citizen
 - **Physical Appearance:** 6'3", 150 lbs, black hair, green eyes, pale, prominent forehead, hunched posture, scabbed wrists.
