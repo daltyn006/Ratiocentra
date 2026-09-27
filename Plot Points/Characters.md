@@ -6,7 +6,8 @@
 - **Physical Appearance:** Height, weight, hair, eyes, age, tactile/physical characteristics.
 - **Role & Background:** Position in the bliss society, personal history, relationships.
 - **Personality & Flaws:** Drives, psychological weaknesses, internal contradictions.
-- **Subterranean Test & Outcome:** Behavior within the isolated psychological chambers.
+
+# PRESUMES CHARACTERS LIVE 2 YEARS
 
 ---
 
@@ -28,7 +29,12 @@
   - *Section 5:* Uncovers the pre-system Bible (Book of Job) in Chapter 24; undergoes a final jagged chute fall; walks into the lake in Chapter 25 with Lindesay's phantom.
 
 ## Father Grenzer [ Guard of the boundary ] 
-
+- **Age and Gender:** 47 -> 49 yo Male
+- **Soul Status:** Confirmed human soul vs. automated projection / soulless husk (in Grant's worldview).
+- **Physical Appearance:** Height, weight, hair, eyes, age, tactile/physical characteristics.
+- **Role & Background:** Position in the bliss society, personal history, relationships.
+- **Personality & Flaws:** Drives, psychological weaknesses, internal contradictions.
+- **Subterranean Test & Outcome:** Behavior within the isolated psychological chambers.
 
 ---
 
