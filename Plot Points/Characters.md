@@ -20,7 +20,7 @@
   - *Traits:* Obsessive, deeply loving, pessimistic, paranoid, stubborn, slowly unraveling into an unhinged martyr.
   - *Motivations:* Keeping Lindesay's memory alive at all costs; rescuing what he believes are "trapped, unhoused spirits"; finding his lost sibling.
   - *Conflicts:* Refuses to let go of grief in a world designed for absolute ease. Internalizes grief as physical body horror (phantom chest coldness, hearing metal scraping against his spine). Even when given something better than before he refuses to be happy.
-  - *Quirks:* Hates synthetic clothing touching his skin; perceives background citizens as "empty husks" staring at him; clings to his bleeding pain as his only proof of humanity.
+  - *Quirks:* Hates synthetic clothing touching his skin; perceives background citizens and shadows as "empty husks" staring at him; clings to his bleeding pain as his only proof of humanity.
 - **Plot Points & Arc:**
   - *Section 1:* Suicidal 10m leap down the chute out of pure grief for Manada.
   - *Section 2:* Lands on Lindesay’s ascending platform; recovers; uncovers the Mall-School paper archives and discovers he has an orphan twin sibling.
