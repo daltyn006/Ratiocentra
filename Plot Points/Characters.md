@@ -30,11 +30,11 @@
 
 ## Father Grenzer [ Guard of the boundary ] 
 - **Age and Gender:** 47 -> 49 yo Male
-- **Soul Status:** Confirmed human soul vs. automated projection / soulless husk (in Grant's worldview).
-- **Physical Appearance:** Height, weight, hair, eyes, age, tactile/physical characteristics.
-- **Role & Background:** Position in the bliss society, personal history, relationships.
-- **Personality & Flaws:** Drives, psychological weaknesses, internal contradictions.
-- **Subterranean Test & Outcome:** Behavior within the isolated psychological chambers.
+- **Soul Status:** Confirmed human soul 
+- **Physical Appearance:** 6'3", greying wise man, cool spectacles, moustache and beard,  
+- **Role & Background:** Driving background character
+- **Personality & Flaws:** A little too artsy sometimes, supportive, playful
+- **Subterranean Test & Outcome:** Has 2 children instead of 1
 
 ---
 
@@ -155,7 +155,7 @@
 - **Personality:**
   - *Traits:* Deeply affectionate, emotionally fragile, prone to sudden obsessive shifts.
 - **Plot Points & Arc:**
-  - Discovered by Grant via the Mall-School paper archives in Chapter 10.
+  - Discovered by Grant via the School paper archives in Chapter 10.
   - Upon meeting Grant in Section 3, their attachment violently transfers from their spouse to Grant due to shared bloodline traits.
   - In Section 4, their 5-year-old child undergoes an early system test, showing the testing chambers through the surreal, terrifying lens of childhood logic.
 
@@ -170,3 +170,4 @@
   - *Traits:* Erratic, cynical, perceptive, unstable.
   - *Motivations:* Escaping sober reality; seeking genuine sensation in a numb world.
 - **Plot Points & Arc:** Acts as an early guide to the fringe elements of Hasseoka and the urban underbelly before the group ventures into the wild grid.
+- Enters testing early so that he isn't left alone in the world
