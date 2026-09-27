@@ -15,7 +15,7 @@ Now the immutable world reacts to the actions of the meek and feeble. Humanity h
 ---
 
 ## ⚠️ Content Warnings
-**This work contains graphic scenes of body horror, non-consensual medical procedures, severe physical trauma, child loss/infant endangerment, genocide, explicit descriptions of grief, substance abuse, and suicide. Intended strictly for adult readers.**
+**This work contains graphic scenes of body horror, non-consensual medical procedures, non-consent, severe physical trauma, child loss/infant endangerment, genocide, explicit descriptions of grief, substance abuse, and suicide. Intended strictly for adult readers.**
 
 ---
 
