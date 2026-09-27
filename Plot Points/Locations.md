@@ -1,5 +1,5 @@
 ### **Surface Society & Settlements**
-1. **Beskydarren:**
+1. **Beskydarren (Artistic sector) :**
    - *Description:* A quiet, aesthetically pristine surface town built around automated comfort, automated dining, and effortless living.
    - *Atmosphere:* Eerily calm, clean, sparsely populated. Frictionless bliss where conflict and suffering are completely absent.
 
@@ -7,7 +7,9 @@
    - *Description:* A multi-tiered sector housing educational facilities, transit nodes, and automated utility centers.
    - *The Mall-School Complex:* An obsolete 20th/21st-century style mall converted into a school. Contains the forgotten paper archive library in a side closet where Grant uncovers pre-system history and his sibling's birth record.
 
-3. 
+3. **Luxuria (City, Everything in Excess):**
+  - *Description:* "everything goes" city where people and animal alike enjoy debauchery. 
+  - *Role:* Serves as an explorable location that members can drown their sorrows
 
 4. **The Wild Grid / Wilderness Buffer:**
    - *Description:* The unmonitored sectors beyond the automated urban perimeter. monitored forests, old growth, and forgotten infrastructure.
@@ -24,9 +26,9 @@
    - *Description:* Hermetically sealed, soundproof chambers where individuals undergo isolated psychological evaluation.
    - *Function:* Neural systems project real-time sensory illusions, memories, and tailored scenarios to test emotional attachment.
    - *Outcomes:*
-     - *Surrender / Release:* Yielding attachment transforms the room into a serene, lovely release (e.g., Lindesay, Anderson, Christoph).
-     - *Infidelity / Possessive Violation:* Triggers instant execution and soul forfeiture (e.g., Deneder).
-     - *Stubborn Resistance:* Turns the room into a self-generated, escalating nightmare loop (e.g., Grant).
+     - *Surrender / Release:* Yielding attachment transforms the room into a serene, lovely release.
+     - *Infidelity / Possessive Violation:* causes soul forfeiture.
+     - *Stubborn Resistance:* Turns the room into a self-generated, escalating nightmare loop dependent on the person.
 
 3. **The Pre-System Ruins & The Lake (Section 5):**
    - *The Fortress:* Ancient pre-automation ruins where Grant uncovers the pre-system Bible (reading the Book of Job) in Chapter 24.
