@@ -34,7 +34,7 @@
 
 ##  Lindesay 
 - **Soul Status:** Deceased (Extracted/Eased by System); manifests as a Phantom Projection in Grant's mind.
-- **Physical Appearance:** 4'11", ~140 lbs, 24 years old (at death), Caucasian-Asian, chubby in a soft, genuine way, expressive dark eyes, slightly messy dark hair.
+- **Physical Appearance:** Irish-Caucasian, 4'11", ~140 lbs, 24 years old (at death),  chubby in a soft, genuine way, expressive emerald eyes, slightly messy dark hair.
 - **Role & Background:** Grant's lost partner. Her intense bond with Grant was formed in extreme isolation. Died after a system intervention/test during her pregnancy.
 - **Personality:**
   - *Traits:* Ethereal yet direct, sharp, harbors a quiet, suffocating fear of being forgotten or replaced.
@@ -50,7 +50,7 @@
 ## Manada
 - **Age and Gender:** 25 -> 26 yo Female
 - **Soul Status:** Confirmed Soul (Grounded & Whole)
-- **Physical Appearance:** 4'9", 140 lbs, dark amber hair, emerald green eyes, clean, well-kept, cutesy yet athletic build.
+- **Physical Appearance:** Caucasian, 4'9", 140 lbs, dark amber hair, emerald green eyes, clean, well-kept, cutesy yet athletic build.
 - **Role & Background:** Grounded wanderer who travels the transit grids looking for authentic human resonance. Rejected the automated Match System to curate her own fate.
 - **Personality:**
   - *Traits:* Patient, empathetic, highly self-reliant, emotionally mature, observant.
@@ -77,19 +77,25 @@
   - They view Grant’s grief not with malice, but with profound pity.
   - In Section 4, Anderson enters his subterranean test, faces his attachment, and successfully lets go—emerging in peaceful, sterile release.
 
----
-
 ## Eira || Anderson's Wife 
 
   - **Age and Gender:** 20 -> 22 yo Female
   -**Soul Status:** Untested (Confirmed)
+- **Physical Appearance:**
+  - Beautiful, 5'6", 155lbs, blonde hair, dark brown eyes, thin curvy, soft build
+  - Tasteful, endlessly happy, jolly, enjoys leatherworking and sewing.
+- **Role & Background:** Craftswoman perfectly paired with her husband via the Match System.
+- **Plot Points & Arc:**
+  - Acts as a push to get Grant to face his fear of clothes  
+  - Continues her life as normal outside of the group
+
 ---
+
 ## Christoph [ He who carries the Christ ] 
 - **Age and Gender:** 23 -> 25 yo Male
 - **Soul Status:** Confirmed Souls
 - **Physical Appearance:**
-  - *Cristoph:* 5'6", 180 lbs, blonde hair, clear blue eyes, trim, athletic ranger build.
-  - *His Wife:* Tactile, creative, quiet, enjoys hand-crafting and cooking in a post-scarcity world.
+  - 5'6", 180lbs, blonde hair, clear blue eyes, trim, athletic ranger build.
 - **Role & Background:** Wilderness survival enthusiast perfectly paired with his wife via the Match System.
 - **Personality:**
   - *Traits:* Thoughtful, rational, observant, quiet.
@@ -99,10 +105,16 @@
   - Demonstrates how a "perfect" system match can still harbor mild, quiet existential questions, though easily smoothed over by system bliss.
   - Completes his subterranean test peacefully in Section 4 alongside his wife.
 
----
-
 ## Gisela || Christoph's wife [ Pledge ]
- - **Age and Gender:** 20 -> 22 yo Female
+- **Age and Gender:** 20 -> 22 yo Female
+- **Soul Status:** Untested (Confirmed) 
+- **Physical Appearance:**
+  - 5'4", 140lbs, brunette hair, bronze eyes, thin, athletic build
+  - Tactile, creative, quiet, enjoys hand-crafting and cooking in a post-scarcity world.
+- **Role & Background:** High adventure enthusiast perfectly paired with her husband via the Match System.
+- **Plot Points & Arc:**
+  - Acts as a voice of reason and softly questions Grant's leadership  
+  - Joins her husband in his isolation room and stays there loyally 
 
 ---
 
@@ -117,6 +129,17 @@
 - **Plot Points & Arc:**
   - *Section 3:* Tries to project seduction/affair tropes onto the happy wives during the wild grid trip; gets thoroughly repulsed and shut down.
   - *Section 4 (Subterranean Test):* Placed in an isolated chamber. The system projects his dream affair fantasy. Given the chance to choose mutual respect, Deneder leans into possessive infidelity. Real-time neural monitoring flags him as an incurable social hazard, triggering his instant execution and soul forfeiture.
+
+## Desdemona || Daneder's wife [ born under an evil star ] 
+- **Age and Gender:** 35yo female
+- **Soul Status:** Confirmed (tormented)
+- **Physical Appearance:** Caucasian & Russian, 5'9", 165 lbs, flowing red hair, yellow eyes, stylishly maintained appearance.
+- **Role & Background:** Woman who tries to do her best to satisfy an unsatisfiable husband 
+- **Personality:**
+  - *Traits:* Tired, loyal, sad, deeply insecure, enjoys her misery.
+  - *Motivations:* Trying to find purpose in a world that treats her poorly even though there is little grief
+- **Plot Points & Arc:**
+  - Finds out Daneder is having an affair && || seeing other women and goes to his isolation chamber. 
 
 ---
 
@@ -135,8 +158,8 @@
 ---
 
 ## Beorme [ Rising Scum ] 
-- **Age and Gender:** Late 17 yo Male
-- **Soul Status:** Non-conforming Citizen
+- **Age and Gender:** Late 18 yo Male
+- **Soul Status:** Not 
 - **Physical Appearance:** 6'3", 150 lbs, black hair, green eyes, pale, prominent forehead, hunched posture, scabbed wrists.
 - **Role & Background:** Underground fringe dweller who uses illicit substances to cope with the eerie, artificial perfection of the bliss society.
 - **Personality:**
