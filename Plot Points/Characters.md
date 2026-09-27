@@ -34,7 +34,7 @@
 
 ##  Lindesay 
 - **Soul Status:** Deceased (Extracted/Eased by System); manifests as a Phantom Projection in Grant's mind.
-- **Physical Appearance:** Irish-Caucasian, 4'11", ~140 lbs, 24 years old (at death),  chubby in a soft, genuine way, expressive emerald eyes, slightly messy dark hair.
+- **Physical Appearance:** Irish-Caucasian, 4'11", ~140 lbs, 24 years old (at death),  chubby in a soft, genuine way, expressive emerald eyes, slightly messy dark brunette hair.
 - **Role & Background:** Grant's lost partner. Her intense bond with Grant was formed in extreme isolation. Died after a system intervention/test during her pregnancy.
 - **Personality:**
   - *Traits:* Ethereal yet direct, sharp, harbors a quiet, suffocating fear of being forgotten or replaced.
@@ -50,7 +50,7 @@
 ## Manada
 - **Age and Gender:** 25 -> 26 yo Female
 - **Soul Status:** Confirmed Soul (Grounded & Whole)
-- **Physical Appearance:** Caucasian, 4'9", 140 lbs, dark amber hair, emerald green eyes, clean, well-kept, cutesy yet athletic build.
+- **Physical Appearance:** German-Caucasian, 4'9", 140 lbs, dark amber hair, shiny diamond eyes, clean, well-kept, cutesy yet athletic build.
 - **Role & Background:** Grounded wanderer who travels the transit grids looking for authentic human resonance. Rejected the automated Match System to curate her own fate.
 - **Personality:**
   - *Traits:* Patient, empathetic, highly self-reliant, emotionally mature, observant.
@@ -63,11 +63,10 @@
 ---
 
 ## Anderson 
-- **Age and Gender:** 23 -> 25 yo Male (Anderson); 22 -> 24 yo Female (Wife)
+- **Age and Gender:** 23 -> 25 yo Male (Anderson)
 - **Soul Status:** Confirmed Souls (Content System Citizens)
 - **Physical Appearance:** 
   - *Anderson:* 5'5", 230 lbs, short red hair, warm eyes, chubby, jovial, cheerful double chin, strong hands.
-  - *His Wife:* Warm, practical, neatly dressed, soft features, motherly demeanor.
 - **Role & Background:** Anderson is a metalworking enthusiast paired with his wife through the automated Match System. They enjoy a warm, friction-free home life.
 - **Personality:**
   - *Traits:* Deeply content, loyal, practical, compassionate.
@@ -77,13 +76,12 @@
   - They view Grant’s grief not with malice, but with profound pity.
   - In Section 4, Anderson enters his subterranean test, faces his attachment, and successfully lets go—emerging in peaceful, sterile release.
 
-## Eira || Anderson's Wife 
-
+## Eira || Anderson's Wife [ Snow of the cold stream ] 
   - **Age and Gender:** 20 -> 22 yo Female
   -**Soul Status:** Untested (Confirmed)
 - **Physical Appearance:**
   - Beautiful, 5'6", 155lbs, blonde hair, dark brown eyes, thin curvy, soft build
-  - Tasteful, endlessly happy, jolly, enjoys leatherworking and sewing.
+  - Warm, practical, neatly dressed, soft features, motherly demeanor, endlessly happy, jolly, enjoys leatherworking and sewing.
 - **Role & Background:** Craftswoman perfectly paired with her husband via the Match System.
 - **Plot Points & Arc:**
   - Acts as a push to get Grant to face his fear of clothes  
@@ -118,7 +116,7 @@
 
 ---
 
-## Daneder [ dweller of the wasteland ]
+## Daneder [ dweller of the barren wasteland ]
 - **Age and Gender:** 25 yo Male
 - **Soul Status:** Confirmed Soul -> Forfeited / Executed by System
 - **Physical Appearance:** 5'7", 145 lbs, slicked blonde hair, sharp hazel eyes, stylishly maintained appearance.
