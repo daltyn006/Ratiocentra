@@ -13,13 +13,13 @@
 
 ## Grant Grenzer [The great one, guard of the boundary ]
 - **Age and Gender:** 23 -> 25 yo Male
-- **Soul Status:** Confirmed Soul (Severely Fractured)
+- **Soul Status:** Confirmed Soul (Severely Fractured + on the precipice)
 - **Physical Appearance:** 6'0", ~190 lbs, short brown half-sweep hairstyle, brown eyes, square jawline, ragged, unkempt, scabby/scarred skin from chute falls, visibly starving by Section 5.
 - **Role & Background:** Protagonist. Traumatized by his mother's loss and the tragic death of his partner, Manada. Refuses to accept society's automated coping mechanisms.
 - **Personality:**
   - *Traits:* Obsessive, deeply loving, pessimistic, paranoid, stubborn, slowly unraveling into an unhinged martyr.
-  - *Motivations:* Keeping Manada’s memory alive at all costs; rescuing what he believes are "trapped, unhoused spirits"; finding his lost sibling.
-  - *Conflicts:* Refuses to let go of grief in a world designed for absolute ease. Internalizes grief as physical body horror (phantom chest coldness, hearing metal scraping against his spine).
+  - *Motivations:* Keeping Lindesay's memory alive at all costs; rescuing what he believes are "trapped, unhoused spirits"; finding his lost sibling.
+  - *Conflicts:* Refuses to let go of grief in a world designed for absolute ease. Internalizes grief as physical body horror (phantom chest coldness, hearing metal scraping against his spine). Even when given something better than before he refuses to be happy.
   - *Quirks:* Hates synthetic clothing touching his skin; perceives background citizens as "empty husks" staring at him; clings to his bleeding pain as his only proof of humanity.
 - **Plot Points & Arc:**
   - *Section 1:* Suicidal 10m leap down the chute out of pure grief for Manada.
