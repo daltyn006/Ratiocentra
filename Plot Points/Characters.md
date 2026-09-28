@@ -57,7 +57,7 @@
 - **Age and Gender:** 25 -> 26 yo Female
 - **Soul Status:** Confirmed Soul (Grounded & Whole)
 - **Physical Appearance:** German-Caucasian, 4'9", 140 lbs, dark amber hair, shiny diamond eyes, clean, well-kept, cutesy yet athletic build.
-- **Role & Background:** Grounded wanderer who travels the transit grids looking for authentic human resonance. Rejected the automated Match System to curate her own fate.
+- **Role & Background:** Grounded wanderer who travels the transit grids looking for authentic human resonance. Found her way out of isolation.
 - **Personality:**
   - *Traits:* Patient, empathetic, highly self-reliant, emotionally mature, observant.
   - *Motivations:* Finding real, un-optimized human connection in a sparse, quiet world.
