@@ -16,7 +16,10 @@ Now the immutable world reacts to the actions of the meek and feeble. Humanity h
 
 ## ⚠️ Content Warnings
 **This work contains graphic scenes of body horror, non-consensual medical procedures, general non-consent, severe physical trauma, child loss/infant endangerment, genocide, explicit descriptions of grief, substance abuse, and suicide. Intended strictly for adult readers.**
-
+e.g. 
+- Violence and Death
+- Mental Health
+- Physical and Mental Distress
 ---
 
 ## 📑 Read Online
