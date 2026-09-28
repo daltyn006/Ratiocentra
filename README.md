@@ -15,7 +15,7 @@ Now the immutable world reacts to the actions of the meek and feeble. Humanity h
 ---
 
 ## ⚠️ Content Warnings
-**This work contains graphic scenes of body horror, non-consensual medical procedures, non-consent, severe physical trauma, child loss/infant endangerment, genocide, explicit descriptions of grief, substance abuse, and suicide. Intended strictly for adult readers.**
+**This work contains graphic scenes of body horror, non-consensual medical procedures, general non-consent, severe physical trauma, child loss/infant endangerment, genocide, explicit descriptions of grief, substance abuse, and suicide. Intended strictly for adult readers.**
 
 ---
 
@@ -34,14 +34,14 @@ Now the immutable world reacts to the actions of the meek and feeble. Humanity h
   - **Chapter 4:** The Vixen
   - **Chapter 5:** Iridium Necklaces
 - ### Section 2 - Redemption:
-  - **Chapter 6:** The Beauty (In Progress)
-  - **Chapter 7:** Revival
+  - **Chapter 6:** The Isolated
+  - **Chapter 7:** Recreation
   - **Chapter 8:** Scattered plans
   - **Chapter 9:** Lost and Found
   - **Chapter 10:** Archives and Data Centers
 - ### Section 3 - Exploration:
   - **Chapter 11:** Exposure
-  - **Chapter 12:** Fury and Hatred (Sister??)
+  - **Chapter 12:** Luxuria
   - **Chapter 13:** Resumption of Sanity
   - **Chapter 14:** True Horror
   - **Chapter 15:** Knowledge Beyond
