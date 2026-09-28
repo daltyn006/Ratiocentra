@@ -26,7 +26,7 @@ When a brutal shift in reality breaks the delicate structure of his mind, the su
   - severe physical trauma
 - Mental Health
   - substance abuse
-  - insanity
+  - insanity + paranoia
 - Physical and Mental Distress
   - non-consensual scenarios 
   - explicit descriptions of grief
