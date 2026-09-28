@@ -44,4 +44,5 @@ The shadow did not answer. It did not need to. It simply stopped being a shadow 
 
 But there, somewhere above the ceiling that was not a ceiling, in a body he had almost stopped believing was his, something in his chest declined, very quietly, to continue.
 
-The machine logged the reason. The machine always logged the reason. No one who could have used the information could ever read it.
+
+> eyes open - but have always been open, conscious organ harvesting 
