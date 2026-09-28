@@ -6,11 +6,13 @@
 
 ## 📖 Synopsis
 
-Grant Grenzer lives in a perfect utopia with his father. The few people left are able to live out their lives with little stress, conflict, or adversity due to a set of customs and traditions put in place centuries ago. Billions have died and will continue to die in order to create a utopia, but it is alright because they have no souls. Humans have figured a fix for earthly problems. Younger generations are given the time to reach their root capacities, it is up to the self to decide if survival is at hand.
+Grant Grenzer lives in a world where Earth has become Heaven. The few who remain live in effortless harmony, unburdened by the ancient anxieties of human existence. Every earthly problem has been answered. Stress is extinct. Conflict is obsolete. Yet beneath the radiant, immaculate surface of this real utopia lies an unyielding law: salvation is a test of the mind, and you must save yourself.  Billions have died in this quiet sorting of souls, and billions more will follow. A Heaven without pain is worth living in, but within the dark, silent architecture of the self- every mind is given the chance to reach its full capacity, to shed its shadows, and to enter the light of absolute peace.
 
-With memories of reality and fiction driving him in a unique path in what would be earthly perfection, it soon becomes impossible for him to conform on the day of his becoming. How many shall suffer for retribution to save all over some, to embellish the walls with the shortcomings and failures of what has become of truth and justice. Love, reason, and the incarnate are not meant to co-exist. The greater good sometimes requires an evil. And that evil can only be found in the self.
+Love is a stubborn, bleeding thing.
 
-Now the immutable world reacts to the actions of the meek and feeble. Humanity has figured out what must be sacrificed to develop. Now that it has, why should it cause its own demise?
+The few who remain live in effortless harmony, unburdened by the ancient anxieties of existence. Yet beneath the clean, radiant surface of this real utopia lies an unyielding law: salvation is a discipline of the mind. Only those who can quiet their internal storms are granted life eternal in the light. 
+
+When a brutal shift in reality breaks the delicate structure of his mind, the suppressed weight of love, loss, and guilt surges back with catastrophic force. The terror is no longer outside; it is a violent, internal cascade that no paradise can cure. Faced with the unbearable horror of a soul that refuses to forget, the ultimate act of autonomy is not surviving paradise, but diving headlong into the dark.
 
 ---
 
@@ -24,6 +26,7 @@ Now the immutable world reacts to the actions of the meek and feeble. Humanity h
   - severe physical trauma
 - Mental Health
   - substance abuse
+  - insanity
 - Physical and Mental Distress
   - non-consensual scenarios 
   - explicit descriptions of grief
