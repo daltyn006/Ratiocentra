@@ -6,7 +6,8 @@ Wakes up with his wife perfect and happy days ->
 we see inside his mind (needs to at least 3 up the women with horror and fright, maybe war?) -> 
       - phase 1: battle, bullets whizzing by his head but he can't move
       - phase 2: frontlines, he is pitted alone against a monster
-      - phase 3: 
+      - phase 3: monster is unkillable, learns he cannot talk or the monster hears him, he shuts up. 
+MAYBE HE WAS A TALKER IN THE PAST. ohhh
       ### what does he learn? 
 we see that he felt what was going on in his mind and the horrors he experienced ->
  we change to outside his mind where we see a young nurse taking care of him sexually -> 
