@@ -53,7 +53,7 @@ When a brutal shift in reality breaks the delicate structure of his mind, the su
   - **Chapter 6:** The Isolated
   - **Chapter 7:** Recreation
   - **Chapter 8:** Lost and Found
-  - **Chapter 9:** Mr. Grenzer
+  - **Chapter 9:** Weisman Grenzer
   - **Chapter 10:** Luxuria
 - ### Section 3 - Exploration:
   - **Chapter 11:** Exposure
