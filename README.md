@@ -26,7 +26,8 @@ When a brutal shift in reality breaks the delicate structure of his mind, the su
   - severe physical trauma
 - Mental Health
   - substance abuse
-  - insanity + paranoia
+  - insanity
+  - paranoia
 - Physical and Mental Distress
   - non-consensual scenarios 
   - explicit descriptions of grief
@@ -51,12 +52,12 @@ When a brutal shift in reality breaks the delicate structure of his mind, the su
 - ### Section 2 - Redemption:
   - **Chapter 6:** The Isolated
   - **Chapter 7:** Recreation
-  - **Chapter 8:** Scattered plans
-  - **Chapter 9:** Lost and Found
-  - **Chapter 10:** Archives and Data Centers
+  - **Chapter 8:** Lost and Found
+  - **Chapter 9:** Mr. Grenzer
+  - **Chapter 10:** Archives
 - ### Section 3 - Exploration:
   - **Chapter 11:** Exposure
-  - **Chapter 12:** Luxuria
+  - **Chapter 12:** 
   - **Chapter 13:** Resumption of Sanity
   - **Chapter 14:** True Horror
   - **Chapter 15:** Knowledge Beyond
@@ -69,9 +70,9 @@ When a brutal shift in reality breaks the delicate structure of his mind, the su
 - ### Section 5 - Revelations:
   - **Chapter 21:** Visionary  
   - **Chapter 22:** Consciousness in the Void (Outlook) 
-  - **Chapter 23:** Heat Rising (The Expert) 
+  - **Chapter 23:** Heat Rising (The Expert?) 
   - **Chapter 24:** The Fortress (New Addition)
-  - **Chapter 25:** What Lies Beyond (Outcomes for the entire group)
+  - **Chapter 25:** What Lies Beyond (The End)
 
 ---
 
