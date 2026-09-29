@@ -38,7 +38,7 @@
 
 ---
 
-##  Lindesay [ Dry land among marshes ] 
+##  Lindesay [ island by the lake ] 
 - **Soul Status:** Deceased (Extracted/Eased by System); manifests as a Phantom Projection in Grant's mind.
 - **Physical Appearance:** Irish-Caucasian, 4'11", ~140 lbs, 24 years old (at death),  chubby in a soft, genuine way, expressive emerald eyes, slightly messy dark brunette hair.
 - **Role & Background:** Grant's lost partner. Her intense bond with Grant was formed in extreme isolation. Died after a system intervention/test during her pregnancy.
@@ -53,7 +53,7 @@
 
 ---
 
-## Manada [ Bend in the water ]
+## Manada [ Bend in the water, giver of honor ]
 - **Age and Gender:** 25 -> 26 yo Female
 - **Soul Status:** Confirmed Soul (Grounded & Whole)
 - **Physical Appearance:** German-Caucasian, 4'9", 140 lbs, dark amber hair, shiny diamond eyes, clean, well-kept, cutesy yet athletic build.
