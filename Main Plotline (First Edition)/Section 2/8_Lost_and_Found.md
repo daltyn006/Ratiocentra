@@ -68,34 +68,14 @@ Manada paused, her fingers lingering against his skin, her dark eyes looking up 
 
 "Watch," Grant slurred, chuckling as he rested his hands on Manada, and looked at the screen, letting his impaired, floating thoughts lock onto the screen's visual feed. "If my father's so sure about how many grandchildren he's supposed to have, let's see what the system actually registered under his name. Let's see how smart the match algorithm really is." Manada let out a quiet sigh, but her smile was fond as she stayed close, her bare body pressed against his side, her chin resting on his shoulder to watch the monitor hum to life.
 
-Grant's unfocused neural pulse pushed into the network. The screen flickered, smoothing out from the previous game’s raw, sensory shapes into the stark, clean lines of the system's census registry. Text scrolled down in rapid, luminous bands: GRENZER, W. — RESIDENTIAL & REPRODUCTIVE ARCHIVE.
-
-Grant kept his playful grin ready, waiting to laugh off whatever dry, ancient data popped up to satisfy his drunken curiosity. He thought maybe he'd find some old match application, or some hidden file about his mother. But as his neural pulse navigated past his own birth entry, the system auto-filled an adjacent branch on the family tree—a medical and lineage record tagged directly under his father’s identity from twenty-four years ago.
+Grant's unfocused mind pushed into the network. The screen flickered, smoothing out from the previous game's raw, sensory shapes into the stark, clean lines of the system's census registry. Text scrolled down in rapid, luminous bands: GRENZER, W. — RESIDENTIAL & REPRODUCTIVE ARCHIVE. Grant kept his playful grin ready, waiting to laugh off whatever dry, ancient data popped up to satisfy his drunken curiosity. He thought maybe he'd find some old match application, or some hidden file about his mother. But as his mind navigated past his own birth entry, the system auto-filled an adjacent branch on the family tree- a medical and lineage record tagged directly under his father's identity from twenty-four years ago.
 
 The screen paused on a single, unmistakable entry:
 
-LINEAGE RECORD: GRENZER, F.
+He had a sister.
 
-OFFSPRING: 2
+Grant's joking mood died instantly. The loose grin froze on his face.
 
-SUBJECT 1: GRANT GRENZER (CONFIRMED)
+His eyes locked onto the glowing letters, scanning them once, twice, three times. The slurred chuckle in his throat completely dried up. The drunken fog in his head didn't clear, but it froze solid. A half-sister. A girl born under his father's line, carried by another woman, completely unmentioned by his father, completely erased from his entire life. Beside him, Manada's touch shifted. Sensing the sudden, terrifying shift in his posture, her playful arousal vanished, replaced instantly by hyper-vigilant concern. She felt the sudden halt in his breathing, the way his spine locked like iron beneath her hands.
 
-SUBJECT 2: BESRA (CONFIRMED - MATERNAL SEPARATION / HALF-SISTER)
-
-STATUS: LIVE BIRTH / UNLINKED MATCHING / SEPARATED AT DELIVERY
-
-Grant’s joking mood died instantly. The loose grin froze on his face.
-
-His eyes locked onto the glowing letters, scanning them once, twice, three times. The slurred chuckle in his throat completely dried up. The drunken fog in his head didn't clear, but it froze solid.
-
-A half-sister. A girl born under his father's line, carried by another woman, completely unmentioned by his father, completely erased from his entire life.
-
-Beside him, Manada’s touch shifted. Sensing the sudden, terrifying shift in his posture, her playful arousal vanished, replaced instantly by hyper-vigilant concern. She felt the sudden halt in his breathing, the way his spine locked like iron beneath her hands.
-
-She shifted her gaze from his face to the monitor, her dark eyes quickly scanning the stark lines of text before snapping back to his pale, rigid face. She didn't say a word. Her hand slid down his waist to grip his wrist firmly, her warm thumb pressing against his pulse point, observing the violent, erratic spike in his heart rate as he stared at the screen, entirely unable to breathe.
-
-
-
-
-
-
+She shifted her gaze from his face to the monitor, her diamond eyes quickly scanning the stark lines of text before snapping back to his pale, rigid face. She didn't say a word. Her hand slid down his waist to grip his wrist firmly, her warm thumb pressing against his pulse point, observing the violent, erratic spike in his heart rate as he stared at the screen, entirely unable to breathe.
