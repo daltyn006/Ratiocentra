@@ -54,10 +54,10 @@ When a brutal shift in reality breaks the delicate structure of his mind, the su
   - **Chapter 7:** Recreation
   - **Chapter 8:** Lost and Found
   - **Chapter 9:** Mr. Grenzer
-  - **Chapter 10:** Archives
+  - **Chapter 10:** Luxuria
 - ### Section 3 - Exploration:
   - **Chapter 11:** Exposure
-  - **Chapter 12:** 
+  - **Chapter 12:** Daneder
   - **Chapter 13:** Resumption of Sanity
   - **Chapter 14:** True Horror
   - **Chapter 15:** Knowledge Beyond
