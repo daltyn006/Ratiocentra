@@ -7,7 +7,7 @@
 - **Role & Background:** Position in the bliss society, personal history, relationships.
 - **Personality & Flaws:** Drives, psychological weaknesses, internal contradictions.
 
-# PRESUMES CHARACTERS LIVE 2 YEARS
+### PRESUMES CHARACTERS LIVE 2 YEARS
 
 ---
 
@@ -83,7 +83,7 @@
   - In Section 4, Anderson enters his subterranean test, faces his attachment, and successfully lets go—emerging in peaceful, sterile release.
 
 ## Eira || Anderson's Wife [ Snow of the cold stream ] 
-  - **Age and Gender:** 20 -> 22 yo Female
+  - **Age and Gender:** 20 -> 22 yo Female?
   -**Soul Status:** Untested (Confirmed)
 - **Physical Appearance:**
   - Beautiful, 5'6", 155lbs, blonde hair, dark brown eyes, thin curvy, soft build
@@ -135,9 +135,9 @@
   - *Section 4 (Subterranean Test):* Placed in an isolated chamber. The system projects his dream affair fantasy. Given the chance to choose mutual respect, Deneder leans into possessive infidelity. Real-time neural monitoring flags him as an incurable social hazard, triggering his instant execution and soul forfeiture.
 
 ## Desdemona || Daneder's wife [ born under an evil star ] 
-- **Age and Gender:** 35yo female
+- **Age and Gender:** 24yo looks 35yo female
 - **Soul Status:** Confirmed (tormented)
-- **Physical Appearance:** Caucasian & Russian, 5'9", 165 lbs, flowing red hair, yellow eyes, stylishly maintained appearance.
+- **Physical Appearance:** Caucasian & Russian, 5'9", 165 lbs, flowing red hair, forest green eyes, stylishly maintained appearance.
 - **Role & Background:** Woman who tries to do her best to satisfy an unsatisfiable husband 
 - **Personality:**
   - *Traits:* Tired, loyal, sad, deeply insecure, enjoys her misery.
