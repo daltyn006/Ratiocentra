@@ -28,7 +28,7 @@
   - *Section 4:* Subterranean test reveals Lindesay carried his child, which was clinically removed due to the parents' irrational friction. He rejects the test's offer of peaceful release, doubling down on his obsession.
   - *Section 5:* Uncovers the pre-system Bible (Book of Job) in Chapter 24; undergoes a final jagged chute fall; walks into the lake in Chapter 25 with Lindesay's phantom.
 
-## Father Grenzer [ Guard of the boundary ] 
+## Father (Weisman) Grenzer [ Guard of the boundary ] 
 - **Age and Gender:** 47 -> 49 yo Male
 - **Soul Status:** Confirmed human soul 
 - **Physical Appearance:** 6'3", greying wise man, cool spectacles, moustache and beard,  
