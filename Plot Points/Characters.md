@@ -149,13 +149,12 @@
 - **Age and Gender:** 24->25 yo Female
 - **Soul Status:** Confirmed Soul (Genetically Predisposed to Hyper-Attachment)
 - **Physical Appearance:** Striking facial resemblance to Grant and his father; shares Manada’s soft, expressive eyes and externally angry demeanor.
-- **Role & Background:** Born days apart from Grant due to a late delivery. Separated at birth after a nurse took advantage of their father while he was asleep in medical care. Raised as an orphan; now lives with a spouse and a 5-year-old child.
+- **Role & Background:** Born days apart from Grant due to a late delivery. Separated at birth after a nurse took advantage of their father while he was asleep in medical care. Raised as an orphan; kept away from attaching to the world since she was born a nurse.
 - **Personality:**
   - *Traits:* Deeply affectionate, emotionally fragile, prone to sudden obsessive shifts.
 - **Plot Points & Arc:**
-  - Discovered by Grant via the School paper archives in Chapter 10.
+  - Approached in Chapter 10.
   - Upon meeting Grant in Section 3, their attachment violently transfers from their spouse to Grant due to shared bloodline traits.
-  - In Section 4, their 5-year-old child undergoes an early system test, showing the testing chambers through the surreal, terrifying lens of childhood logic.
 
 ---
 
