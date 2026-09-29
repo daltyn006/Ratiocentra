@@ -7,8 +7,6 @@
 - **Role & Background:** Position in the bliss society, personal history, relationships.
 - **Personality & Flaws:** Drives, psychological weaknesses, internal contradictions.
 
-### PRESUMES CHARACTERS LIVE 2 YEARS
-
 ---
 
 ## Grant Grenzer [The great one, guard of the boundary ]
