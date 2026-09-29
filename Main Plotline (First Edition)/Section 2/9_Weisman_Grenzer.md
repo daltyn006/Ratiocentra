@@ -1,7 +1,5 @@
 # Weisman Grenzer
 
-# Chapter 9: Weisman Grenzer
-
 The morning light filtered through the blinds in soft, honeyed stripes across their bedroom floor. One year of marriage had taught Weisman Grenzer the exact way the sun would fall on his wife's skin at this hour, how it would catch the silver strands in her dark hair and make them shimmer like captured starlight. They had woken early, an unspoken agreement between them to steal these last hours before the system took them away for a year.
 
 "Are you nervous?" Irma asked, her voice still thick with sleep as she rolled to face him. At 20, her face carried an elegance that nothing could carry and a map of their life together, a slight softening at her jaw that came with relaxation and comfort. She was beautiful in a timeless way, a masterpiece of shared moments. Weisman traced the curve of her hip with his hands that touched her tenderly like the instruments he had gotten so good at performing to her. "Not about the test. About leaving you." He shifted closer, his body remembering hers as if it had been designed only for this purpose. "The doctor said the chances decrease with each passing year." "We've been trying," she whispered, her fingers finding the black hairs at his temple. "Perhaps you know something I don't."
