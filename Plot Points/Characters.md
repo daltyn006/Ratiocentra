@@ -13,7 +13,7 @@
 - **Age and Gender:** 23 -> 25 yo Male
 - **Soul Status:** Confirmed Soul (Severely Fractured + on the precipice)
 - **Physical Appearance:** 6'0", ~190 lbs, short brown half-sweep hairstyle, brown eyes, square jawline, ragged, unkempt
-- **Role & Background:** Protagonist. Traumatized by his mother's loss and the tragic death of his partner, Manada. Refuses to accept society's automated coping mechanisms.
+- **Role & Background:** Protagonist. Traumatized by his mother's loss and the tragic death of his partner, Lindesay. Refuses to accept society's automated coping mechanisms.
 - **Personality:**
   - *Traits:* Obsessive, deeply loving, pessimistic, paranoid, stubborn, slowly unraveling into an unhinged martyr.
   - *Motivations:* Keeping Lindesay's memory alive at all costs; rescuing what he believes are "trapped, unhoused spirits"; finding his lost sibling.
