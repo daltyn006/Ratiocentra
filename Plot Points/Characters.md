@@ -27,17 +27,24 @@
   - *Section 5:* Uncovers the pre-system Bible (Book of Job) in Chapter 24; undergoes a final jagged chute fall; walks into the lake in Chapter 25 with Lindesay's phantom.
 
 ## Father (Weisman) Grenzer [ Guard of the boundary ] 
-- **Age and Gender:** 47 -> 49 yo Male
+- **Age and Gender:** 25, 47 -> 49 yo Male
 - **Soul Status:** Confirmed human soul 
-- **Physical Appearance:** 6'3", greying wise man, cool spectacles, moustache and beard,  
+- **Physical Appearance:** 6'3", greying wise man, black hair, cool spectacles, moustache and beard,  
 - **Role & Background:** Driving background character
 - **Personality & Flaws:** A little too artsy sometimes, supportive, playful
 - **Subterranean Test & Outcome:** Has 2 children instead of 1
 
+## Irma Grenzer
+-  **Age and Gender:** 20, 36 yo Female
+- **Soul Status:** Dead
+- **Physical Appearance:** 5'7, brown hair, emerald green eyes,
+-**Role & Background:** Majorly just a background character. 
+-**Personality & Flaws:** Flawless, supportive.
+
 ---
 
 ##  Lindesay [ island by the lake ] 
-- **Soul Status:** Deceased (Extracted/Eased by System); manifests as a Phantom Projection in Grant's mind.
+- **Soul Status:** Deceased; manifests as aProjection in Grant's mind.
 - **Physical Appearance:** Irish-Caucasian, 4'11", ~140 lbs, 24 years old (at death),  chubby in a soft, genuine way, expressive emerald eyes, slightly messy dark brunette hair.
 - **Role & Background:** Grant's lost partner. Her intense bond with Grant was formed in extreme isolation. Died after a system intervention/test during her pregnancy.
 - **Personality:**
