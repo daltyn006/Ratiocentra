@@ -59,7 +59,7 @@ When a brutal shift in reality breaks the delicate structure of his mind, the su
   - **Chapter 11:** Exposure
   - **Chapter 12:** Luxuria
   - **Chapter 13:** Resumption of Sanity
-  - **Chapter 14:** True Horror
+  - **Chapter 14:** (Cheesy horror name) 
   - **Chapter 15:** Knowledge Beyond
 - ### Section 4 - Testing: 
   - **Chapter 16:** The Glutton (The Chronicles of Cheese)
