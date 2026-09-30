@@ -8,7 +8,7 @@ Copyright (c) 2026 Daltyn Landas
 
 The digital source code, markdown files, and raw text contained within 
 this repository are licensed under the Creative Commons Attribution-
-NonCommercial-ShareAlike 4.0 International License (CC BY-NC-SA 4.0).
+Non-Commercial-Share-Alike 4.0 International License (CC BY-NC-SA 4.0).
 
 You are free to:
   * Share — copy and redistribute the material in any medium or format
@@ -23,12 +23,11 @@ Under the following terms:
 To view a full copy of this license, visit:
 https://creativecommons.org/licenses/by-nc-sa/4.0/legalcode
 
-
+---
 ### 2. RESERVED COMMERCIAL & PHYSICAL PUBLICATION RIGHTS
-========================================================================
+---
 
-All rights not expressly granted under the CC BY-NC-SA 4.0 license are 
-strictly reserved by the copyright owner, Daltyn Landas.
+All rights not expressly granted under the CC BY-NC-SA 4.0 license are strictly reserved by the copyright owner, Daltyn Landas.
 
 This reservation of rights includes, without limitation:
   * Physical Publishing: Exclusive rights to print, manufacture, publish, distribute, or sell physical formats (paperback, hardcover, limited editions, print-on-demand).
