@@ -34,7 +34,7 @@
 - **Personality & Flaws:** A little too artsy sometimes, supportive, playful
 - **Subterranean Test & Outcome:** Has 2 children instead of 1
 
-## Irma Grenzer
+## Mother (Irma) Grenzer 
 -  **Age and Gender:** 20, 36 yo Female
 - **Soul Status:** Dead
 - **Physical Appearance:** 5'7, brown hair, emerald green eyes,
