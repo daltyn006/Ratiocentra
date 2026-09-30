@@ -104,7 +104,7 @@
 - **Age and Gender:** 23 -> 25 yo Male
 - **Soul Status:** Confirmed Souls
 - **Physical Appearance:**
-  - 5'6", 180lbs, blonde hair, clear blue eyes, trim, athletic ranger build.
+  - 5'6", 180lbs, blonde hair, silver eyes, trim, athletic ranger build.
 - **Role & Background:** Wilderness survival enthusiast perfectly paired with his wife via the Match System.
 - **Personality:**
   - *Traits:* Thoughtful, rational, observant, quiet.
