@@ -12,7 +12,7 @@
 ## Grant Grenzer [The great one, guard of the boundary ]
 - **Age and Gender:** 23 -> 25 yo Male
 - **Soul Status:** Confirmed Soul (Severely Fractured + on the precipice)
-- **Physical Appearance:** 6'0", ~190 lbs, short brown half-sweep hairstyle, brown eyes, square jawline, ragged, unkempt, scabby/scarred skin from chute falls, visibly starving by Section 5.
+- **Physical Appearance:** 6'0", ~190 lbs, short brown half-sweep hairstyle, brown eyes, square jawline, ragged, unkempt
 - **Role & Background:** Protagonist. Traumatized by his mother's loss and the tragic death of his partner, Manada. Refuses to accept society's automated coping mechanisms.
 - **Personality:**
   - *Traits:* Obsessive, deeply loving, pessimistic, paranoid, stubborn, slowly unraveling into an unhinged martyr.
