@@ -57,7 +57,7 @@ When a brutal shift in reality breaks the delicate structure of his mind, the su
   - **Chapter 10:** Nurses and Doctors
 - ### Section 3 - Exploration:
   - **Chapter 11:** Exposure
-  - **Chapter 12:** 
+  - **Chapter 12:** Luxuria
   - **Chapter 13:** Resumption of Sanity
   - **Chapter 14:** True Horror
   - **Chapter 15:** Knowledge Beyond
