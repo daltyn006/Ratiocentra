@@ -54,7 +54,7 @@ When a brutal shift in reality breaks the delicate structure of his mind, the su
   - **Chapter 7:** Recreation
   - **Chapter 8:** Lost and Found
   - **Chapter 9:** Weisman Grenzer
-  - **Chapter 10:** Daneder
+  - **Chapter 10:** Nurses and Doctors
 - ### Section 3 - Exploration:
   - **Chapter 11:** Exposure
   - **Chapter 12:** 
