@@ -29,7 +29,7 @@
 ## Father (Weisman) Grenzer [ Guard of the boundary ] 
 - **Age and Gender:** 25, 47 -> 49 yo Male
 - **Soul Status:** Confirmed human soul 
-- **Physical Appearance:** 6'3", greying wise man, black hair, cool spectacles, moustache and beard,  
+- **Physical Appearance:** 6'3", greying wise man, brown hair, cool spectacles, moustache and beard,  
 - **Role & Background:** Driving background character
 - **Personality & Flaws:** A little too artsy sometimes, supportive, playful
 - **Subterranean Test & Outcome:** Has 2 children instead of 1
@@ -37,7 +37,7 @@
 ## Mother (Irma) Grenzer 
 -  **Age and Gender:** 20, 36 yo Female
 - **Soul Status:** Dead
-- **Physical Appearance:** 5'7, brown hair, emerald green eyes,
+- **Physical Appearance:** 5'7, black hair, emerald green eyes,
 -**Role & Background:** Majorly just a background character. 
 -**Personality & Flaws:** Flawless, supportive.
 
