@@ -155,8 +155,7 @@
 ## Besra [ Solitary bird of prey ]  
 - **Age and Gender:** 24->25 yo Female
 - **Soul Status:** Confirmed Soul (Genetically Predisposed to Hyper-Attachment)
-- **Physical Appearance:** Striking facial resemblance to Grant and his father; shares Manada’s soft, expressive eyes and externally angry demeanor.
-- **Role & Background:** Born days apart from Grant due to a late delivery. Separated at birth after a nurse took advantage of their father while he was asleep in medical care. Raised as an orphan; kept away from attaching to the world since she was born a nurse.
+- **Physical Appearance:** Striking facial resemblance to Irma- **Role & Background:** Born days apart from Grant due to a late delivery. Separated at birth after a nurse took advantage of their father while he was asleep in medical care. Raised as an orphan; kept away from attaching to the world since she was born a nurse.
 - **Personality:**
   - *Traits:* Deeply affectionate, emotionally fragile, prone to sudden obsessive shifts.
 - **Plot Points & Arc:**
