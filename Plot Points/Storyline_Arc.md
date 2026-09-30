@@ -17,7 +17,7 @@
 ---
 
 ## SECTION 3: EXPLORATION (Chapters 11–15)
-- **Ch 11: Exposure:** Grant refuses to use societies aides sets out into the Wild Grid. Husbands protect Grant; wives maintain marital bonds; Deneder seeks unmonitored freedom.
+- **Ch 11: Exposure:** Daneder Chapter
 - **Ch 12: Fury and Hatred:** Domestic bliss perspectives contrasted against the wild journey. Deneder attempts to force affair tropes onto the wives and gets repulsed.
 - **Ch 13: Resumption of Sanity:** Encounter with Grant’s 24yo sibling, spouse, and 5yo child. Sibling’s attachment shifts obsessively toward Grant upon learning of shared blood.
 - **Ch 14: True Horror:** Grant breaks away, starving in the forest while holding onto grief. His family tracks him down to a surface restaurant, where he views their meal with disgust.
