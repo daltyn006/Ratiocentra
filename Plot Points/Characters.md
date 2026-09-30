@@ -44,7 +44,7 @@
 ---
 
 ##  Lindesay [ island by the lake ] 
-- **Soul Status:** Deceased; manifests as aProjection in Grant's mind.
+- **Soul Status:** Deceased; manifests as a Projection in Grant's mind.
 - **Physical Appearance:** Irish-Caucasian, 4'11", ~140 lbs, 25 years old (at death),  chubby in a soft, genuine way, expressive emerald eyes, slightly messy dark brunette hair.
 - **Role & Background:** Grant's lost partner. Her intense bond with Grant was formed in extreme isolation. Died after a system intervention/test during her pregnancy.
 - **Personality:**
