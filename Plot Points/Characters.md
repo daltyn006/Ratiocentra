@@ -175,3 +175,4 @@
   - *Motivations:* Escaping sober reality; seeking genuine sensation in a numb world.
 - **Plot Points & Arc:** Acts as an early guide to the fringe elements of Hasseoka and the urban underbelly before the group ventures into the wild grid.
 - Enters testing early so that he isn't left alone in the world
+  **Theme song:** https://genius.com/Dispatch-open-up-lyrics
