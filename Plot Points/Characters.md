@@ -161,6 +161,7 @@
 - **Plot Points & Arc:**
   - Approached in Chapter 10.
   - Upon meeting Grant in Section 3, their attachment violently transfers from their spouse to Grant due to shared bloodline traits.
+ - **Theme song:** https://genius.com/Incubus-the-warmth-lyrics
 
 ---
 
