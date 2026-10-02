@@ -25,6 +25,7 @@
   - *Section 3:* Leads the group into the wild grid; starves in the forest; refuses to conform despite his friends bringing him to a restaurant.
   - *Section 4:* Subterranean test reveals Lindesay carried his child, which was clinically removed due to the parents' irrational friction. He rejects the test's offer of peaceful release, doubling down on his obsession.
   - *Section 5:* Uncovers the pre-system Bible (Book of Job) in Chapter 24; undergoes a final jagged chute fall; walks into the lake in Chapter 25 with Lindesay's phantom.
+**Favorite Bands:** Tool, Red Hot Chili Peppers 
 
 ## Father (Weisman) Grenzer [ Guard of the boundary ] 
 - **Age and Gender:** 25, 47 -> 49 yo Male
@@ -33,6 +34,7 @@
 - **Role & Background:** Driving background character
 - **Personality & Flaws:** A little too artsy sometimes, supportive, playful
 - **Subterranean Test & Outcome:** Has 2 children instead of 1
+- **Favorite Bands:** Blind Melon, Dispatch
 
 ## Mother (Irma) Grenzer 
 -  **Age and Gender:** 20, 36 yo Female
@@ -40,7 +42,7 @@
 - **Physical Appearance:** 5'7, black hair, emerald green eyes,
 -**Role & Background:** Majorly just a background character. 
 -**Personality & Flaws:** Flawless, supportive.
-
+- **Favorite Bands:** Joe Walsh,
 ---
 
 ##  Lindesay [ island by the lake ] 
@@ -55,7 +57,7 @@
   - Her sudden loss shatters Grant, prompting his descent down the chute.
   - In Section 4, the testing chamber reveals she carried Grant's child in secret before the system's medical protocol clinically terminated the pregnancy to prevent non-viable emotional friction.
   - Lingers throughout the novel as Grant's mental phantom—a static echo chamber of his grief that draws him into the lake.
-
+  - **Favorite Bands:**
 ---
 
 ## Manada [ Bend in the water, giver of honor ]
@@ -70,7 +72,7 @@
 - **Plot Points & Arc:**
   - *Section 2:* Completes her subterranean transit test by mastering the art of "letting go." As her net/platform ascends, Grant falls 10 meters directly onto her. She catches and comforts him as he weeps.
   - *Section 2–3:* Bonds with Grant in the Mall-School library; accompanies the group into the wild grid. Acts as Grant's primary anchor to living reality.
-
+- **Favorite Bands:**
 ---
 
 ## Anderson [ Manly ] 
@@ -86,6 +88,7 @@
   - They join the Section 3 wild grid journey to support Grant and keep Anderson grounded.
   - They view Grant’s grief not with malice, but with profound pity.
   - In Section 4, Anderson enters his subterranean test, faces his attachment, and successfully lets go—emerging in peaceful, sterile release.
+ - **Favorite Bands:** The Presidents of the United States of America, Bare Naked Ladies
 
 ## Eira || Anderson's Wife [ Snow of the cold stream ] 
   - **Age and Gender:** 20 -> 22 yo Female?
@@ -97,6 +100,7 @@
 - **Plot Points & Arc:**
   - Acts as a push to get Grant to face his fear of clothes  
   - Continues her life as normal outside of the group
+  - **Favorite Bands:** Dire Straights, Chicago
 
 ---
 
@@ -161,7 +165,7 @@
 - **Plot Points & Arc:**
   - Approached in Chapter 10.
   - Upon meeting Grant in Section 3, their attachment violently transfers from their spouse to Grant due to shared bloodline traits.
- - **Theme songs:** https://genius.com/Incubus-the-warmth-lyrics, https://genius.com/The-presidents-of-the-united-states-of-america-lump-lyrics
+ - **Theme songs:** Nine Inch Nails
 
 ---
 
@@ -175,4 +179,4 @@
   - *Motivations:* Escaping sober reality; seeking genuine sensation in a numb world.
 - **Plot Points & Arc:** Acts as an early guide to the fringe elements of Hasseoka and the urban underbelly before the group ventures into the wild grid.
 - Enters testing early so that he isn't left alone in the world
-  **Theme songs:** https://genius.com/Dispatch-open-up-lyrics
+  **Theme songs:** https://genius.com/Dispatch-open-up-lyrics, https://genius.com/The-presidents-of-the-united-states-of-america-lump-lyrics
