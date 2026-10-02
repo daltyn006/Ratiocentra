@@ -161,7 +161,7 @@
 - **Plot Points & Arc:**
   - Approached in Chapter 10.
   - Upon meeting Grant in Section 3, their attachment violently transfers from their spouse to Grant due to shared bloodline traits.
- - **Theme song:** https://genius.com/Incubus-the-warmth-lyrics
+ - **Theme songs:** https://genius.com/Incubus-the-warmth-lyrics, https://genius.com/The-presidents-of-the-united-states-of-america-lump-lyrics
 
 ---
 
@@ -175,4 +175,4 @@
   - *Motivations:* Escaping sober reality; seeking genuine sensation in a numb world.
 - **Plot Points & Arc:** Acts as an early guide to the fringe elements of Hasseoka and the urban underbelly before the group ventures into the wild grid.
 - Enters testing early so that he isn't left alone in the world
-  **Theme song:** https://genius.com/Dispatch-open-up-lyrics
+  **Theme songs:** https://genius.com/Dispatch-open-up-lyrics
