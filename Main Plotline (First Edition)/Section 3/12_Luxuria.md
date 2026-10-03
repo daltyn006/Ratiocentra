@@ -1,89 +1,14 @@
 # Luxuria
 
-Above the heavy, dark marble archway that led into Daneder’s den, two massive broadswords hung crossed against the cold stone wall. Their polished steel edges were honed to an absolute, terrifying perfection—a masterwork of heavy metallurgy that Anderson had personally forged, balanced, and mounted before the party ever crossed into the district. They stood as silent, unyielding monuments to structural order, military discipline, and absolute boundary, guarding a threshold built on wealth, safety, and domestic permanence. Under their long, metallic shadow, the entry hall felt less like a home and more like a fortress meant to keep the world's chaos at bay.
+Above the heavy, dark marble archway that led into Daneder’s den, two massive broadswords hung crossed against the cold stone wall. Their polished steel edges were honed to an absolute, terrifying perfection- a masterwork of heavy metallurgy that Anderson had personally forged, balanced, and mounted before the party ever crossed into the district. They stood as silent, unyielding monuments to structural order, discipline, and protection, guarding a threshold built on safety and domestic permanence. Under their long, metallic shadow, the entry hall felt less like a home and more like a protected fortress meant to keep the world's chaos at bay. When the group first stepped across the threshold, the world outside was still completely normal. To everyone else, the arrival was merely the end of a long journey into the unknown Luxuria- a chance to unwind in the lobby, stretch tired limbs, and settle into comfort. But to Besra, normalcy was an intolerable, suffocating horror.
 
-When the group first stepped across the threshold, the world outside was still completely normal. To everyone else, the arrival was merely the end of a long journey into Luxuria—a chance to untie heavy travelling coats, stretch tired limbs, and settle into comfort. But to Besra, normalcy was an intolerable, suffocating horror.
+Standing just inside the archway, Besra watched the group with a silent, skin-crawling revulsion. As Anderson and Christoph unbuttoned their collars, laughing casually with their wives about finding a high-end tavern down the cobblestone street to get thoroughly drunk on vintage spirits, Besra’s unblinking eyes tracked the movement of their throats and hands. To her empty mind, their easy laughter, their effortless physical affection, and the warm, rhythmic ebb and flow of genuine human intimacy were utterly grotesque. The subtle brush of a hand against a waist, the quiet shared glance between husband and wife, the soft cadence of banter- it all felt alien, an oppressive, static noise that pressed heavily against her ears. She stood completely motionless in the center of the foyer, an unblinking, hollow shape that absorbed the living warmth of the room without returning a single breath of humanity.
 
-Standing just inside the archway, Besra watched the group with a silent, skin-crawling revulsion. As Anderson and Christoph unbuttoned their collars, laughing casually with their wives about finding a high-end tavern down the cobblestone street to get thoroughly drunk on vintage spirits, Besra’s unblinking eyes tracked the movement of their throats and hands. To her empty mind, their easy laughter, their effortless physical affection, and the warm, rhythmic ebb and flow of genuine human intimacy were utterly grotesque. The subtle brush of a hand against a waist, the quiet shared glance between husband and wife, the soft cadence of banter—it all felt alien, an oppressive, static noise that pressed heavily against her ears. She stood completely motionless in the center of the foyer, an unblinking, hollow shape that absorbed the living warmth of the room without returning a single breath of humanity.
+Across the entry bar, Manada caught Besra’s blank, empty gaze. Manada felt no empathy for the woman, nor did she feel a shred of sympathy for whatever plight had reduced Besra to such a state; she recognized only an instinctual, skin-crawling wrongness. It was the primal disgust one feels when noticing rot beneath a polished floorboard. Manada turned her head and saw her husband, Grant, lingering near the edge of the lounge. His eyes were fixed on Besra with a dangerous, curious pity- a fatal impulse to understand or comfort something that was fundamentally unshakeable. Before that pity could solidify into action, Manada stepped smoothly into Grant's line of sight, cutting off his view entirely.
 
-Across the entry bar, Manada caught Besra’s blank, empty gaze. Manada felt no empathy for the woman, nor did she feel a shred of sympathy for whatever plight had reduced Besra to such a state; she recognized only an instinctual, skin-crawling wrongness. It was the primal disgust one feels when noticing rot beneath a polished floorboard.
+She slid her fingers slowly down from his chest, teasing Grant, her touch deliberately possessive. Then, Leaning the full weight of her body against his chest, she pulled his gaze down to hers with a heavy, magnetic physical allure. Her voice was a low, intimate whisper, wrapping around him like velvet, reminding him of her presence, her claim, and the warmth of his promises. Grant’s focus broke instantly. Enticed by his lover's scent, her physical closeness, and the undeniable pull of her charm, he yielded to her control without a second thought. Manada cared nothing for the rest of the party, nor did she care what dark tide might swallow Daneder’s den once they left; her sole, sharp impulse was to insulate Grant, pulling him far away from the emotional contagion that clung to Besra like a shroud.
 
-Manada turned her head and saw her husband, Grant, lingering near the edge of the lounge. His eyes were fixed on Besra with a dangerous, curious pity—a fatal impulse to understand or comfort something that was fundamentally unshakeable. Before that pity could solidify into action, Manada stepped smoothly into Grant's line of sight, cutting off his view entirely.
-
-She slid her fingers slowly up the lapel of Grant’s tailored coat, her touch deliberately possessive. Leaning the full weight of her body against his chest, she pulled his gaze down to hers with a heavy, magnetic physical allure. Her voice was a low, intimate murmur, wrapping around him like velvet, reminding him of her presence, her claim, and the warmth of his marriage.
-
-Grant’s focus broke instantly. Enticed by his wife’s scent, her physical closeness, and the undeniable pull of her charm, he yielded to her control without a second thought. Manada cared nothing for the rest of the party, nor did she care what dark tide might swallow Daneder’s den once they left; her sole, sharp impulse was to insulate Grant, pulling him far away from the emotional contagion that clung to Besra like a shroud.
-
-Within minutes, the group began to scatter, entirely unconcerned with the domestic sanctuary they were abandoning. Anderson, Christoph, and their wives gathered their cloaks, laughing loudly as they stepped back out into the cool night air, intent on losing themselves in the district's vice and alcohol. Manada kept her hand firmly intertwined with Grant’s, steering him out the heavy double doors without a backward glance, officially cementing the group's decision to disband and leave Besra behind. To the rest of the party, Besra was simply a strange, quiet traveler left in the care of their host; to Manada, she was a discarded hazard left behind in a house she had no desire to save.
-
-Daneder adjusted his heavy silver cuffs, setting a crystal decanter onto the dark bar before casting a brief, measured glance toward his wife, Desdemonea.
-
-"I have business near the lower square regarding the shipping manifests," Daneder said smoothly, his tone calm, assured, and entirely unsuspecting. "I will return shortly."
-
-He adjusted his collar, turned on his heel, and stepped out through the front doors. The heavy oak and iron clicked shut with a deep, echoing thud, sealing the den in absolute silence, and leaving Desdemonea alone with the emotionless void waiting in the crimson light beyond the threshold.
-
-
-
-
-
---- questioned --- 
-
-When the heavy front doors sealed shut, the quiet that settled over the den was not peaceful; it was thick, heavy, and oppressive.
-
-The environmental controls within Daneder’s sanctuary slowly cycled, bathing the grand chamber in a deep, lush red tone. The artificial hearth crackled behind dark iron glass, washing every velvet cushion, mahogany panel, and silk drape in a deep, valentine-rose light. To any outside observer, it was the pinnacle of romantic luxury—a warm, intimate haven designed to foster closeness and quiet devotion.
-
-Desdemonea sat on the edge of the velvet settee, her long, flowing red hair spilling in loose curls over her shoulders. Her forest-green eyes had a permanent, dark weight beneath them—a shadowy exhaustion born not from physical hardship, but from a profound, self-inflicted spiritual weariness.
-
-To the rest of Luxuria, Desdemonea’s life was an enviable masterpiece. She was married to Daneder—a handsome, influential man of unquestioned stability who provided her with an immaculate home, complete material security, and an ironclad sanctuary from the district’s harsh realities. She lacked nothing in the physical world. Yet, within the quiet expanse of her own mind, Desdemonea had meticulously cultivated a bitter, tragic narrative. She was bored. The predictable safety of her life felt like a slow, suffocating weight, and because she could find no real flaw in her husband’s provision, she had invented a quiet martyrdom. In her mind, her submission was a sacrifice, her comfortable marriage was a gilded cage, and her perpetual restlessness was proof of a deep, tragic soul that Daneder was simply too pragmatic to understand.
-
-She turned her gaze toward Besra, who sat at the opposite end of the settee.
-
-Besra did not lounge. She did not slouch, nor did she sit with the natural posture of someone taking rest. She simply existed in the space, a human-shaped vessel resting motionless against the velvet cushions. Her pale skin caught the warm rose light of the hearth, but it reflected nothing back. There was no flicker of fatigue in her posture, no subtle adjustment of weight, no rise and fall of her chest that betrayed a mind at work. Besra was a non-character—a void wrapped in flesh, entirely devoid of warmth, sorrow, anger, or joy. She held no identity, no personal history that mattered, and no emotional capacity to offer the world. She was an empty human husk that absorbed whatever atmosphere was thrust upon her without emitting a single pulse of resonance in return.
-
-And to Desdemonea, in her manic, bored desperation, that emptiness felt like the most profound thing she had ever encountered.
-
-Look at her, Desdemonea thought, her breath catching in her throat as a wave of artificial romantic tragedy washed over her chest. She doesn't judge me. She doesn't demand my compliance. She doesn't expect me to be a dutiful wife.
-
-Desdemonea’s fingers began to tremble against her knees. A faint, residual flicker of conscience stirred deep within her—a quiet, rational voice reminding her of the absolute boundary she was standing upon. She thought of Daneder’s constant care, the stability of her home, the vows of devotion she had sworn, and the absolute moral failure of what she was contemplating. Betraying her husband for a stranger was not a noble tragedy; it was a cheap, selfish impulse born of vanity and boredom.
-
-I shouldn't, she told herself, the thought lingering like a faint warning. This is wrong. It will ruin everything.
-
-But the thrill of romantic rebellion drowned out the truth. Desdemonea’s mind, adept at rationalizing her own desires, quickly rewrote the narrative. She convinced herself that her marriage was already a graveyard, that Daneder’s stability was a form of subtle cruelty, and that her attraction to this silent stranger was an irresistible, fate-bound romance she was owed by the universe. She framed her impending betrayal not as a moral failing, but as a brave, desperate act of self-realization.
-
-Slowly, Desdemonea leaned across the velvet settee, closing the distance between them.
-
-The air near Besra felt strangely cold, defying the warm crimson glow of the hearth. Desdemonea reached out, her hand shaking as her delicate fingers brushed along Besra’s jawline and slid up into her dark hair.
-
-Besra did not flinch. She did not turn toward the hand, nor did she pull away. Her face remained completely slack, her pale features static under the touch. To Besra, the physical contact was completely meaningless—neither pleasant nor invasive, simply an external event occurring against her skin.
-
-"Besra..." Desdemonea whispered, her voice cracking with a manic, tearful desperation. "You feel it too, don't you? The weight of this place... the silence?"
-
-Besra’s eyes, dull and unblinking, rested on Desdemonea’s face. She said nothing. She gave no nod, no subtle shift in her irises, no gentle sigh. She simply absorbed the words, a silent black hole taking in Desdemonea’s emotional projection.
-
-Interpreting this absolute silence as deep, sorrowful understanding, Desdemonea yielded entirely to her delusion. She leaned in closer, bringing her lips to the side of Besra’s neck, pressing a soft, lingering kiss against her cool skin. She felt no pulse racing beneath her lips, no goosebumps rising on Besra’s flesh, but Desdemonea’s mind filled in the blanks, imagining a secret, profound passion hidden beneath Besra’s quiet exterior.
-
-Desdemonea shifted her weight, sliding her arms around Besra’s shoulders and pressing her body firmly against the unmoving woman. She brought her mouth to Besra’s slack, unresponsive lips, forcing a desperate, passionate kiss onto her.
-
-Desdemonea worked her lips against Besra’s with an escalating, frantic intensity. She poured all her built-up romantic fantasies, her bored frustrations, and her desperate desire for poetic tragedy into the contact. She pressed her chest hard against Besra’s, wrapping her fingers tightly into her dark hair, pulling Besra’s empty weight against her own trembling frame. She mistook Besra's total passivity for a quiet, submissive surrender—an unspoken willingness to be consumed by Desdemonea’s love.
-
-In reality, Besra was doing nothing. She allowed her body to be moved, her lips to be pressed, and her shoulders to be pulled, acting as nothing more than a fleshy mirror reflecting Desdemonea's own frantic narcissism back at her.
-
-"I love you," Desdemonea wept against Besra’s cheek, her forest-green eyes spilling warm tears onto Besra’s pale skin. "I've never felt like this... never with Daneder, never with anyone. I would give up everything in this house just to stay in this room with you... please, say you feel it. Say you're mine."
-
-Desdemonea pulled back slightly, her hands trembling as she held Besra’s face, searching her features for the romantic validation she so desperately lusted after.
-
-Besra looked back at her.
-
-For the first time, as she stared into Desdemonea’s tear-stained, pleading eyes, a subtle change occurred within Besra’s empty husk. There was still no warmth in her. There was no sudden awakening of love, no romantic depth, no empathy for the weeping woman cradling her face.
-
-Instead, a faint, dark spark flickered deep within Besra’s hollow chest—a subconscious, embryonic sensation.
-
-Besra did not understand emotions, but as she looked at Desdemonea’s desperate posture, she recognized a pattern. She saw a woman who possessed a stable, fortunate life, standing on the precipice of absolute self-destruction. And she realized, with a quiet, awakening instinct, that simply by sitting still and offering nothing, she possessed the power to let this woman shatter her own existence.
-
-It was not love. It was the discovery of malice. Besra realized that she liked the quiet, chaotic sensation of breaking a human life, and for the very first time, her empty void tasted the faint, toxic sweetness of causing ruin.
-
-
---- question --- 
+Within minutes, the group began to scatter, entirely unconcerned with the domestic sanctuary they were abandoning. Anderson, Christoph, and their wives separated into their pairs, laughing loudly as they stepped back out into the cool night air, intent on losing themselves in the district's vice and alcohol. Manada kept her hand firmly intertwined with Grant’s, steering him out the heavy double doors without a backward glance, officially cementing the group's decision to disband and leave Besra behind. To the rest of the party, Besra was simply a strange, quiet traveler left in the care of their most familiar member; to Manada, she was a discarded hazard left behind in a house she had no desire to save.
 
 When the heavy front doors sealed shut, the quiet that settled over the den was thick, heavy, and oppressive with the smells of cheap cologne and fluids. The environmental controls within Daneder’s sanctuary slowly cycled, bathing the grand chamber in a deep, lush red tone. The radiators were burgundy behind dark glass, washing every velvet cushion, mahogany panel, and silk drape in a deep, golden rose light. To any outside observer, it was the pinnacle of romantic luxury. A warm, intimate haven designed to foster interactions and quiet devotion.
 
